@@ -1,0 +1,1 @@
+09 Phao-lô Và Ba-na-ba Tại An-ti-ốt Xứ Bi-si-đi|26:42|0|kich.doi-song-va-chuc-vu-cua-su-do-phao-lo.09-phao-lo-va-ba-na-ba-tai-an-ti-ot-xu-bi-si-di
