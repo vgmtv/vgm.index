@@ -1,1 +1,1 @@
-59. Gia cơ THTK|14|hoc-kinh-thanh-theo-sach.59-gia-co-thtk|false|6
+59. Gia cơ THTK|14|hoc-kinh-thanh-theo-sach.59-gia-co-thtk|false|6|true

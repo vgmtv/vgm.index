@@ -1,1 +1,1 @@
-30. A mốt|9|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.30-a-mot|false|31
+30. A mốt|9|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.30-a-mot|false|31|true

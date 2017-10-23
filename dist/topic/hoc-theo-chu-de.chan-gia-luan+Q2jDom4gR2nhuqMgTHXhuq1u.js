@@ -1,1 +1,1 @@
-Chân Giả Luận|8|hoc-theo-chu-de.chan-gia-luan|false|3
+Chân Giả Luận|8|hoc-theo-chu-de.chan-gia-luan|false|3|true

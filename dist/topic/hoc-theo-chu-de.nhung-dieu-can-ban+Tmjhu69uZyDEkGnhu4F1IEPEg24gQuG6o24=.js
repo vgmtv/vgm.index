@@ -1,1 +1,1 @@
-Những Điều Căn Bản|10|hoc-theo-chu-de.nhung-dieu-can-ban|false|7
+Những Điều Căn Bản|10|hoc-theo-chu-de.nhung-dieu-can-ban|false|7|true

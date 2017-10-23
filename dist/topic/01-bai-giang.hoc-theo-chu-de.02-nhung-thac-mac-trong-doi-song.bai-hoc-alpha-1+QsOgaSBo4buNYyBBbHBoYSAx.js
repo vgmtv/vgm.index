@@ -1,1 +1,1 @@
-Bài học Alpha 1|15|01-bai-giang.hoc-theo-chu-de.02-nhung-thac-mac-trong-doi-song.bai-hoc-alpha-1|true|0
+Bài học Alpha 1|15|01-bai-giang.hoc-theo-chu-de.02-nhung-thac-mac-trong-doi-song.bai-hoc-alpha-1|true|0|true

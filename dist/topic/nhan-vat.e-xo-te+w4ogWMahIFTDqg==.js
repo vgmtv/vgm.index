@@ -1,1 +1,1 @@
-Ê Xơ Tê|13|nhan-vat.e-xo-te|false|6
+Ê Xơ Tê|13|nhan-vat.e-xo-te|false|6|true

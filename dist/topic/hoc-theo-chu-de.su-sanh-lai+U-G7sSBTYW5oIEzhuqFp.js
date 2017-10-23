@@ -1,1 +1,1 @@
-Sự Sanh Lại|6|hoc-theo-chu-de.su-sanh-lai|false|14
+Sự Sanh Lại|6|hoc-theo-chu-de.su-sanh-lai|false|14|true

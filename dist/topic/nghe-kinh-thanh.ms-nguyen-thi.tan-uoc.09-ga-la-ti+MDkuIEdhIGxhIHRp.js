@@ -1,1 +1,1 @@
-09. Ga la ti|6|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.09-ga-la-ti|false|31
+09. Ga la ti|6|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.09-ga-la-ti|false|31|true

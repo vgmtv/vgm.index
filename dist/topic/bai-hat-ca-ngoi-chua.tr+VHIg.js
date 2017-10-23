@@ -1,1 +1,1 @@
-Tr |85|bai-hat-ca-ngoi-chua.tr|false|6
+Tr |85|bai-hat-ca-ngoi-chua.tr|false|6|true

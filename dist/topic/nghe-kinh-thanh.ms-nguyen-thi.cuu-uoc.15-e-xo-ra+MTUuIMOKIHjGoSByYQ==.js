@@ -1,1 +1,1 @@
-15. Ê xơ ra|10|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.15-e-xo-ra|false|31
+15. Ê xơ ra|10|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.15-e-xo-ra|false|31|true

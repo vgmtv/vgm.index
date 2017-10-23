@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 130728 130803|6|phat-thanh-nguon-song.nam-2013.thang-08.phat-thanh-nguon-song-130728-130803|false|6
+Phát Thanh Nguồn Sống 130728 130803|6|phat-thanh-nguon-song.nam-2013.thang-08.phat-thanh-nguon-song-130728-130803|false|6|true

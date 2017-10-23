@@ -1,1 +1,1 @@
-Giáo Lý|296|giao-ly|false|7
+Giáo Lý|296|giao-ly|false|7|false

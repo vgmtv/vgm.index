@@ -1,1 +1,1 @@
-Tin Yêu Hy Vọng|8|truyen-giang.tin-yeu-hy-vong|false|0
+Tin Yêu Hy Vọng|8|truyen-giang.tin-yeu-hy-vong|false|0|true

@@ -1,1 +1,1 @@
-08. II Cô rinh tô|13|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.08-ii-co-rinh-to|false|31
+08. II Cô rinh tô|13|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.08-ii-co-rinh-to|false|31|true

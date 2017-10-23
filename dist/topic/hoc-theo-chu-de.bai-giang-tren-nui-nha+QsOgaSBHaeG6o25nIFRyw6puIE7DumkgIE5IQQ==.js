@@ -1,1 +1,1 @@
-Bài Giảng Trên Núi  NHA|32|hoc-theo-chu-de.bai-giang-tren-nui-nha|false|6
+Bài Giảng Trên Núi  NHA|32|hoc-theo-chu-de.bai-giang-tren-nui-nha|false|6|true

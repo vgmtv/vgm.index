@@ -1,1 +1,1 @@
-13. I Sử ký THTK|12|hoc-kinh-thanh-theo-sach.13-i-su-ky-thtk|false|6
+13. I Sử ký THTK|12|hoc-kinh-thanh-theo-sach.13-i-su-ky-thtk|false|6|true

@@ -1,1 +1,1 @@
-Lót|3|nhan-vat.lot|false|6
+Lót|3|nhan-vat.lot|false|6|true

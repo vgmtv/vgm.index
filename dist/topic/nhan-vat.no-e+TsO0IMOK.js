@@ -1,1 +1,1 @@
-Nô Ê|3|nhan-vat.no-e|false|6
+Nô Ê|3|nhan-vat.no-e|false|6|true

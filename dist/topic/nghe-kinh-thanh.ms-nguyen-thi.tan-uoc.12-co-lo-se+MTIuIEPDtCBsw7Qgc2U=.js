@@ -1,1 +1,1 @@
-12. Cô lô se|4|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.12-co-lo-se|false|31
+12. Cô lô se|4|nghe-kinh-thanh.ms-nguyen-thi.tan-uoc.12-co-lo-se|false|31|true

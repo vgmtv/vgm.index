@@ -1,1 +1,1 @@
-Mười Điều Luật Chúa|18|hoc-theo-chu-de.muoi-dieu-luat-chua|false|7
+Mười Điều Luật Chúa|18|hoc-theo-chu-de.muoi-dieu-luat-chua|false|7|true

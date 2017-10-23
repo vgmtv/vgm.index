@@ -1,1 +1,1 @@
-Ms. Châu Tử Tôn|21|bai-giang-theo-dien-gia.ms-chau-tu-ton|false|6
+Ms. Châu Tử Tôn|21|bai-giang-theo-dien-gia.ms-chau-tu-ton|false|6|true

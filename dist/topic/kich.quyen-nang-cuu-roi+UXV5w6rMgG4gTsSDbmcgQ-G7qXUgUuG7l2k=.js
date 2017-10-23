@@ -1,1 +1,1 @@
-Quyền Năng Cứu Rỗi|10|kich.quyen-nang-cuu-roi|false|0
+Quyền Năng Cứu Rỗi|10|kich.quyen-nang-cuu-roi|false|0|true

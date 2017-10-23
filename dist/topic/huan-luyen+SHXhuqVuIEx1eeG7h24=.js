@@ -1,1 +1,1 @@
-Huấn Luyện|46|huan-luyen|false|8
+Huấn Luyện|46|huan-luyen|false|8|false

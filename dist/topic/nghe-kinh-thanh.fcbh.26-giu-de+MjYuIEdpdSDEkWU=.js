@@ -1,1 +1,1 @@
-26. Giu đe|1|nghe-kinh-thanh.fcbh.26-giu-de|false|31
+26. Giu đe|1|nghe-kinh-thanh.fcbh.26-giu-de|false|31|true

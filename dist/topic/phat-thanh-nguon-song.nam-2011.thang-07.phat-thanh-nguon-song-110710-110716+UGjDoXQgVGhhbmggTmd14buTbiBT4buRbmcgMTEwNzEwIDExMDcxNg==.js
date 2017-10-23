@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 110710 110716|14|phat-thanh-nguon-song.nam-2011.thang-07.phat-thanh-nguon-song-110710-110716|false|6
+Phát Thanh Nguồn Sống 110710 110716|14|phat-thanh-nguon-song.nam-2011.thang-07.phat-thanh-nguon-song-110710-110716|false|6|true

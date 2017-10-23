@@ -1,1 +1,1 @@
-Thầy Lê Đình Trung|23|bai-giang-theo-dien-gia.thay-le-dinh-trung|false|6
+Thầy Lê Đình Trung|23|bai-giang-theo-dien-gia.thay-le-dinh-trung|false|6|true

@@ -1,1 +1,1 @@
-05 Cầu Nguyện DMT|10|01-bai-giang.hoc-theo-chu-de.05-cau-nguyen-dmt|true|0
+05 Cầu Nguyện DMT|10|01-bai-giang.hoc-theo-chu-de.05-cau-nguyen-dmt|true|0|true

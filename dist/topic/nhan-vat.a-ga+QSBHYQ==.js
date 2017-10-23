@@ -1,1 +1,1 @@
-A Ga|4|nhan-vat.a-ga|false|6
+A Ga|4|nhan-vat.a-ga|false|6|true

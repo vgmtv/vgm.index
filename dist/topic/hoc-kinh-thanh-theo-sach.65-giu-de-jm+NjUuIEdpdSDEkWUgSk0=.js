@@ -1,1 +1,1 @@
-65. Giu đe JM|30|hoc-kinh-thanh-theo-sach.65-giu-de-jm|false|12
+65. Giu đe JM|30|hoc-kinh-thanh-theo-sach.65-giu-de-jm|false|12|true

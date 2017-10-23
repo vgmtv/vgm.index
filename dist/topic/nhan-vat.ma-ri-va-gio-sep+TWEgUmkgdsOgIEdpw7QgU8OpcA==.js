@@ -1,1 +1,1 @@
-Ma Ri và Giô Sép|12|nhan-vat.ma-ri-va-gio-sep|false|6
+Ma Ri và Giô Sép|12|nhan-vat.ma-ri-va-gio-sep|false|6|true

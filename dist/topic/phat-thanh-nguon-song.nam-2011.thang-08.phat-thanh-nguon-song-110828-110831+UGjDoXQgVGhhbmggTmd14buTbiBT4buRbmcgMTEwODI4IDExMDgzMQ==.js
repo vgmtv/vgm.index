@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 110828 110831|8|phat-thanh-nguon-song.nam-2011.thang-08.phat-thanh-nguon-song-110828-110831|false|0
+Phát Thanh Nguồn Sống 110828 110831|8|phat-thanh-nguon-song.nam-2011.thang-08.phat-thanh-nguon-song-110828-110831|false|0|true

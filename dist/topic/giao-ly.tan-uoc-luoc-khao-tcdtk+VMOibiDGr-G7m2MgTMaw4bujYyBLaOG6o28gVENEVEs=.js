@@ -1,1 +1,1 @@
-Tân Ước Lược Khảo TCDTK|90|giao-ly.tan-uoc-luoc-khao-tcdtk|false|12
+Tân Ước Lược Khảo TCDTK|90|giao-ly.tan-uoc-luoc-khao-tcdtk|false|12|true

@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 100829 100904|8|phat-thanh-nguon-song.nam-2010.thang-09.phat-thanh-nguon-song-100829-100904|false|6
+Phát Thanh Nguồn Sống 100829 100904|8|phat-thanh-nguon-song.nam-2010.thang-09.phat-thanh-nguon-song-100829-100904|false|6|true

@@ -1,1 +1,1 @@
-Tôi Tin Thánh Linh|22|doc-sach.toi-tin-thanh-linh|false|12
+Tôi Tin Thánh Linh|22|doc-sach.toi-tin-thanh-linh|false|12|true

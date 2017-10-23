@@ -1,1 +1,1 @@
-B |114|bai-hat-ca-ngoi-chua.b|false|6
+B |114|bai-hat-ca-ngoi-chua.b|false|6|true

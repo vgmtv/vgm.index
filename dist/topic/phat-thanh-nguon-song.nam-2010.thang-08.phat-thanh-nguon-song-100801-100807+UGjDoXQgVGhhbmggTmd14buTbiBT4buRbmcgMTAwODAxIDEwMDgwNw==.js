@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 100801 100807|14|phat-thanh-nguon-song.nam-2010.thang-08.phat-thanh-nguon-song-100801-100807|false|6
+Phát Thanh Nguồn Sống 100801 100807|14|phat-thanh-nguon-song.nam-2010.thang-08.phat-thanh-nguon-song-100801-100807|false|6|true

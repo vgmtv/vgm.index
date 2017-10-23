@@ -1,1 +1,1 @@
-41. Mác THTK|20|hoc-kinh-thanh-theo-sach.41-mac-thtk|false|6
+41. Mác THTK|20|hoc-kinh-thanh-theo-sach.41-mac-thtk|false|6|true

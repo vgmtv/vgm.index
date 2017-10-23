@@ -1,1 +1,1 @@
-02. Xuất ê díp tô ký THTK|34|hoc-kinh-thanh-theo-sach.02-xuat-e-dip-to-ky-thtk|false|6
+02. Xuất ê díp tô ký THTK|34|hoc-kinh-thanh-theo-sach.02-xuat-e-dip-to-ky-thtk|false|6|true

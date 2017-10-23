@@ -1,1 +1,1 @@
-Chức Vụ Chăn Bầy Ms.Phan Vĩnh Cự|3|huan-luyen.chuc-vu-chan-bay-ms-phan-vinh-cu|false|8
+Chức Vụ Chăn Bầy Ms.Phan Vĩnh Cự|3|huan-luyen.chuc-vu-chan-bay-ms-phan-vinh-cu|false|8|true

@@ -1,1 +1,1 @@
-Giải Đáp Thắc Mắc|8|hoc-theo-chu-de.giai-dap-thac-mac|false|7
+Giải Đáp Thắc Mắc|8|hoc-theo-chu-de.giai-dap-thac-mac|false|7|true

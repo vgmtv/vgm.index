@@ -1,1 +1,1 @@
-Giới Thiệu|8|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.gioi-thieu|true|0
+Giới Thiệu|8|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.gioi-thieu|true|0|true

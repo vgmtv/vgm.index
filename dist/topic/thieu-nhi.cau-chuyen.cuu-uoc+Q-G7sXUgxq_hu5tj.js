@@ -1,1 +1,1 @@
-Cựu Ước|18|thieu-nhi.cau-chuyen.cuu-uoc|false|16
+Cựu Ước|18|thieu-nhi.cau-chuyen.cuu-uoc|false|16|true

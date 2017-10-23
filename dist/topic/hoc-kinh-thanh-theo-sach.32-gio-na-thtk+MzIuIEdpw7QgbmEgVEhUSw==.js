@@ -1,1 +1,1 @@
-32. Giô na THTK|6|hoc-kinh-thanh-theo-sach.32-gio-na-thtk|false|6
+32. Giô na THTK|6|hoc-kinh-thanh-theo-sach.32-gio-na-thtk|false|6|true

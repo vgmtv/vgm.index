@@ -1,1 +1,1 @@
-21. Truyền đạo|12|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.21-truyen-dao|false|31
+21. Truyền đạo|12|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.21-truyen-dao|false|31|true

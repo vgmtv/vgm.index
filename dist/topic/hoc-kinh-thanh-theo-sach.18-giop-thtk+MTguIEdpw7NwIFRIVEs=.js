@@ -1,1 +1,1 @@
-18. Gióp THTK|23|hoc-kinh-thanh-theo-sach.18-giop-thtk|false|6
+18. Gióp THTK|23|hoc-kinh-thanh-theo-sach.18-giop-thtk|false|6|true

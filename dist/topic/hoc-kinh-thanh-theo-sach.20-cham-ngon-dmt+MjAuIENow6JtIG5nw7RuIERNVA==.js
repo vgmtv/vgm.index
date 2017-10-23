@@ -1,1 +1,1 @@
-20. Châm ngôn DMT|22|hoc-kinh-thanh-theo-sach.20-cham-ngon-dmt|false|12
+20. Châm ngôn DMT|22|hoc-kinh-thanh-theo-sach.20-cham-ngon-dmt|false|12|true

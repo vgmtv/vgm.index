@@ -1,1 +1,1 @@
-Phương Thức Cầu nguyện|39|hoc-theo-chu-de.phuong-thuc-cau-nguyen|false|14
+Phương Thức Cầu nguyện|39|hoc-theo-chu-de.phuong-thuc-cau-nguyen|false|14|true

@@ -1,1 +1,1 @@
-PTNS 161204 161210|14|phat-thanh-nguon-song.nam-2016.thang-12.ptns-161204-161210|false|0
+PTNS 161204 161210|14|phat-thanh-nguon-song.nam-2016.thang-12.ptns-161204-161210|false|0|true

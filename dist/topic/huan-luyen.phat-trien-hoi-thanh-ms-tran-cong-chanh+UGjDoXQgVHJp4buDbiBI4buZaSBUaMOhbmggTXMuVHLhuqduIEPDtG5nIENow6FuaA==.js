@@ -1,1 +1,1 @@
-Phát Triển Hội Thánh Ms.Trần Công Chánh|3|huan-luyen.phat-trien-hoi-thanh-ms-tran-cong-chanh|false|8
+Phát Triển Hội Thánh Ms.Trần Công Chánh|3|huan-luyen.phat-trien-hoi-thanh-ms-tran-cong-chanh|false|8|true

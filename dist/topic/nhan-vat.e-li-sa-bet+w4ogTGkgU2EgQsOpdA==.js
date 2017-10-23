@@ -1,1 +1,1 @@
-Ê Li Sa Bét|3|nhan-vat.e-li-sa-bet|false|6
+Ê Li Sa Bét|3|nhan-vat.e-li-sa-bet|false|6|true

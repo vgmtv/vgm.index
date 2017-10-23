@@ -1,1 +1,1 @@
-Nhân vật|10|kich.nhan-vat|false|0
+Nhân vật|10|kich.nhan-vat|false|0|true

@@ -1,1 +1,1 @@
-42. Lu ca THTK|30|hoc-kinh-thanh-theo-sach.42-lu-ca-thtk|false|6
+42. Lu ca THTK|30|hoc-kinh-thanh-theo-sach.42-lu-ca-thtk|false|6|true

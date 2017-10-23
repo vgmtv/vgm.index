@@ -1,1 +1,1 @@
-Giê Sa Bên|8|nhan-vat.gie-sa-ben|false|6
+Giê Sa Bên|8|nhan-vat.gie-sa-ben|false|6|true

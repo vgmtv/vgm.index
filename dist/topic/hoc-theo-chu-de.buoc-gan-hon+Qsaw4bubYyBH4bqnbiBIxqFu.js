@@ -1,1 +1,1 @@
-Bước Gần Hơn|12|hoc-theo-chu-de.buoc-gan-hon|false|6
+Bước Gần Hơn|12|hoc-theo-chu-de.buoc-gan-hon|false|6|true

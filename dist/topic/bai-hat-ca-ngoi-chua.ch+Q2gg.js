@@ -1,1 +1,1 @@
-Ch |307|bai-hat-ca-ngoi-chua.ch|false|6
+Ch |307|bai-hat-ca-ngoi-chua.ch|false|6|true

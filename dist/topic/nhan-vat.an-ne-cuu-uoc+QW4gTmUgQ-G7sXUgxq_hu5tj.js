@@ -1,1 +1,1 @@
-An Ne Cựu Ước|2|nhan-vat.an-ne-cuu-uoc|false|6
+An Ne Cựu Ước|2|nhan-vat.an-ne-cuu-uoc|false|6|true

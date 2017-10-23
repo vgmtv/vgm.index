@@ -1,1 +1,1 @@
-Làm Môn Đệ Chúa|17|hoc-theo-chu-de.lam-mon-de-chua|false|6
+Làm Môn Đệ Chúa|17|hoc-theo-chu-de.lam-mon-de-chua|false|6|true

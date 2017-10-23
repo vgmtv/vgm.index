@@ -1,1 +1,1 @@
-Câu Chuyện|31|hoc-theo-chu-de.cau-chuyen|false|0
+Câu Chuyện|31|hoc-theo-chu-de.cau-chuyen|false|0|true

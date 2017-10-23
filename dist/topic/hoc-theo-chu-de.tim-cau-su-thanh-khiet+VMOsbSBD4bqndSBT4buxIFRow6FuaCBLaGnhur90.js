@@ -1,1 +1,1 @@
-Tìm Cầu Sự Thánh Khiết|8|hoc-theo-chu-de.tim-cau-su-thanh-khiet|false|14
+Tìm Cầu Sự Thánh Khiết|8|hoc-theo-chu-de.tim-cau-su-thanh-khiet|false|14|true

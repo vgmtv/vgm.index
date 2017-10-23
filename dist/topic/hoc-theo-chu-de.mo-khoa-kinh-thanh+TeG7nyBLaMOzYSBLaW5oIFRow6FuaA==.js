@@ -1,1 +1,1 @@
-Mở Khóa Kinh Thánh|80|hoc-theo-chu-de.mo-khoa-kinh-thanh|false|12
+Mở Khóa Kinh Thánh|80|hoc-theo-chu-de.mo-khoa-kinh-thanh|false|12|true

@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 131013 131019|14|phat-thanh-nguon-song.nam-2013.thang-10.phat-thanh-nguon-song-131013-131019|false|6
+Phát Thanh Nguồn Sống 131013 131019|14|phat-thanh-nguon-song.nam-2013.thang-10.phat-thanh-nguon-song-131013-131019|false|6|true

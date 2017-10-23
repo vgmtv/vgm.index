@@ -1,1 +1,1 @@
-Xây Dựng|10|hoc-theo-chu-de.xay-dung|false|6
+Xây Dựng|10|hoc-theo-chu-de.xay-dung|false|6|true

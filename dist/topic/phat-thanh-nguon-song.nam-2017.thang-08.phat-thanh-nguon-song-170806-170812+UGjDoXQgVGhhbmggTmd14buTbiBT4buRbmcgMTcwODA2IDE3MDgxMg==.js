@@ -1,1 +1,1 @@
-Phát Thanh Nguồn Sống 170806 170812|14|phat-thanh-nguon-song.nam-2017.thang-08.phat-thanh-nguon-song-170806-170812|false|0
+Phát Thanh Nguồn Sống 170806 170812|14|phat-thanh-nguon-song.nam-2017.thang-08.phat-thanh-nguon-song-170806-170812|false|0|true

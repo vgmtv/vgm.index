@@ -1,1 +1,1 @@
-Tín Ðiều Các Sứ Ðồ|6|hoc-theo-chu-de.tin-ðieu-cac-su-ðo|false|15
+Tín Ðiều Các Sứ Ðồ|6|hoc-theo-chu-de.tin-ðieu-cac-su-ðo|false|15|true

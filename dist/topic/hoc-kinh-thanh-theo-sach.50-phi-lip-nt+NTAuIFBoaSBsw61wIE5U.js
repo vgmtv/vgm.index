@@ -1,1 +1,1 @@
-50. Phi líp NT|15|hoc-kinh-thanh-theo-sach.50-phi-lip-nt|false|6
+50. Phi líp NT|15|hoc-kinh-thanh-theo-sach.50-phi-lip-nt|false|6|true

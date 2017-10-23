@@ -1,1 +1,1 @@
-Ms. Nguyễn Hữu Mạc|4|bai-giang-theo-dien-gia.ms-nguyen-huu-mac|false|6
+Ms. Nguyễn Hữu Mạc|4|bai-giang-theo-dien-gia.ms-nguyen-huu-mac|false|6|true
