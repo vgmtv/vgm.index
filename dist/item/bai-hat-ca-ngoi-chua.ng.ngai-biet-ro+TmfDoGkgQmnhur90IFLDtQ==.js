@@ -1,1 +1,0 @@
-Ngài Biết Rõ|04:24|6|bai-hat-ca-ngoi-chua.ng.ngai-biet-ro

@@ -1,1 +1,0 @@
-003 Ngợi Giê hô va Thánh Đế|02:55|6|bai-hat-ca-ngoi-chua.thanh-ca-509.003-ngoi-gie-ho-va-thanh-de

@@ -1,1 +1,0 @@
-Ca Ngợi Chúa Tôi|02:20|6|bai-hat-ca-ngoi-chua.c.ca-ngoi-chua-toi

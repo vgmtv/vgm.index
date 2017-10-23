@@ -1,1 +1,0 @@
-Chúc Tôn Chúa 2|02:16|6|bai-hat-ca-ngoi-chua.ch.chuc-ton-chua-2

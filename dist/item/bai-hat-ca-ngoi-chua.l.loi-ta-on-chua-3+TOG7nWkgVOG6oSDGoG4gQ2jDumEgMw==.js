@@ -1,1 +1,0 @@
-Lời Tạ Ơn Chúa 3|02:55|6|bai-hat-ca-ngoi-chua.l.loi-ta-on-chua-3

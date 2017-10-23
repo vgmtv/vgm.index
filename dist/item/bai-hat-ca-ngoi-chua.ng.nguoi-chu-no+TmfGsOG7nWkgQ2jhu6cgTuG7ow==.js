@@ -1,1 +1,0 @@
-Người Chủ Nợ|03:14|6|bai-hat-ca-ngoi-chua.ng.nguoi-chu-no

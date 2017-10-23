@@ -1,1 +1,0 @@
-Đứng Trên Lời Hứa 2 TC 201|01:28|6|bai-hat-ca-ngoi-chua.d.dung-tren-loi-hua-2-tc-201

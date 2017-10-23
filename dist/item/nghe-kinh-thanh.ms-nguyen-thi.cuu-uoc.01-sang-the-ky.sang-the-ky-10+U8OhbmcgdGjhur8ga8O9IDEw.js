@@ -1,1 +1,0 @@
-Sáng thế ký 10|03:48|31|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.01-sang-the-ky.sang-the-ky-10

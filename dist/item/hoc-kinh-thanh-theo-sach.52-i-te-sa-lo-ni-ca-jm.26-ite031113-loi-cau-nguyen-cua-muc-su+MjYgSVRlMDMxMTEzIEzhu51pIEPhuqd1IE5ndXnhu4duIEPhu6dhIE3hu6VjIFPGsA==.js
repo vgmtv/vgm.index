@@ -1,1 +1,0 @@
-26 ITe031113 Lời Cầu Nguyện Của Mục Sư|27:43|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.26-ite031113-loi-cau-nguyen-cua-muc-su

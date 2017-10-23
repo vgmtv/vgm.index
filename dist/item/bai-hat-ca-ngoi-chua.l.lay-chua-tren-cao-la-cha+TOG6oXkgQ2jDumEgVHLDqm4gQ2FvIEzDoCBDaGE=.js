@@ -1,1 +1,0 @@
-Lạy Chúa Trên Cao Là Cha|05:45|6|bai-hat-ca-ngoi-chua.l.lay-chua-tren-cao-la-cha

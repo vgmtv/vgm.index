@@ -1,1 +1,0 @@
-228 Tuyết Kia Khôn So|03:20|6|bai-hat-ca-ngoi-chua.thanh-ca-509.228-tuyet-kia-khon-so

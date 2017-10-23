@@ -1,1 +1,0 @@
-Thư Philemon P2|22:24|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.thtk57-thu-philemon.thu-philemon-p2

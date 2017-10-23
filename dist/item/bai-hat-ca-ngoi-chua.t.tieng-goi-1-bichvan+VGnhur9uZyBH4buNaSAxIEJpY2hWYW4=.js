@@ -1,1 +1,0 @@
-Tiếng Gọi 1 BichVan|04:31|6|bai-hat-ca-ngoi-chua.t.tieng-goi-1-bichvan

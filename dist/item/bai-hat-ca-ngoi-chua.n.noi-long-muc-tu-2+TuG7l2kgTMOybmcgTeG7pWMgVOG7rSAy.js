@@ -1,1 +1,0 @@
-Nỗi Lòng Mục Tử 2|04:06|6|bai-hat-ca-ngoi-chua.n.noi-long-muc-tu-2

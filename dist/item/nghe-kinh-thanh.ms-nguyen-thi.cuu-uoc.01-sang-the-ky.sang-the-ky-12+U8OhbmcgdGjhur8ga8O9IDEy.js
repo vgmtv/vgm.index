@@ -1,1 +1,0 @@
-Sáng thế ký 12|03:16|31|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.01-sang-the-ky.sang-the-ky-12

@@ -1,1 +1,0 @@
-Một Đời Dâng Chúa|03:27|6|bai-hat-ca-ngoi-chua.m.mot-doi-dang-chua

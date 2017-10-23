@@ -1,0 +1,1 @@
+Lót|3|lot|false|6|true

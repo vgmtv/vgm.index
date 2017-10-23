@@ -1,1 +1,0 @@
-Vui Bên Chúa 2 ToHa|04:08|0|bai-hat-ca-ngoi-chua.v.vui-ben-chua-2-toha

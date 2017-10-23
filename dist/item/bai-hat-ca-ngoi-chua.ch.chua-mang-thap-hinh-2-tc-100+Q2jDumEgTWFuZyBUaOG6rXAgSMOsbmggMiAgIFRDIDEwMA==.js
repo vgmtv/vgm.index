@@ -1,1 +1,0 @@
-Chúa Mang Thập Hình 2   TC 100|04:46|6|bai-hat-ca-ngoi-chua.ch.chua-mang-thap-hinh-2-tc-100

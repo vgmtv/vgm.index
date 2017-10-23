@@ -1,1 +1,0 @@
-Rồi Một Ngày Chúa Đến|05:18|6|bai-hat-ca-ngoi-chua.r.roi-mot-ngay-chua-den

@@ -1,1 +1,0 @@
-Phút Suy Tư 2|04:22|6|bai-hat-ca-ngoi-chua.p.phut-suy-tu-2

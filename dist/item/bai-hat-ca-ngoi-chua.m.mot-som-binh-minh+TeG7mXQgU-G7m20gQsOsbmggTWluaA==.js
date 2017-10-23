@@ -1,1 +1,0 @@
-Một Sớm Bình Minh|04:31|6|bai-hat-ca-ngoi-chua.m.mot-som-binh-minh

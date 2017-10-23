@@ -1,1 +1,0 @@
-Mong Chi|02:05|6|bai-hat-ca-ngoi-chua.m.mong-chi

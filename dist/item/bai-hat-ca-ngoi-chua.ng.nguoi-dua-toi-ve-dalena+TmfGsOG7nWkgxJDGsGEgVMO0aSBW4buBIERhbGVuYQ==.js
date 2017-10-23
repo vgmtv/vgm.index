@@ -1,1 +1,0 @@
-Người Đưa Tôi Về Dalena|03:51|6|bai-hat-ca-ngoi-chua.ng.nguoi-dua-toi-ve-dalena

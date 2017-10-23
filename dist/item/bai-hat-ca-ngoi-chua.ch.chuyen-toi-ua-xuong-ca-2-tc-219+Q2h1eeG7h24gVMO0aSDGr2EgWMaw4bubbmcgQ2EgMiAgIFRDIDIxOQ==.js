@@ -1,1 +1,0 @@
-Chuyện Tôi Ưa Xướng Ca 2   TC 219|04:18|6|bai-hat-ca-ngoi-chua.ch.chuyen-toi-ua-xuong-ca-2-tc-219

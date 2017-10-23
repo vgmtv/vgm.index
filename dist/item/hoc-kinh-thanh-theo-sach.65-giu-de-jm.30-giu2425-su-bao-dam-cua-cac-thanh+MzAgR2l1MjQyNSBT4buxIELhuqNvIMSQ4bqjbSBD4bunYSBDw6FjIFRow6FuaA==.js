@@ -1,1 +1,0 @@
-30 Giu2425 Sự Bảo Đảm Của Các Thánh|29:46|12|hoc-kinh-thanh-theo-sach.65-giu-de-jm.30-giu2425-su-bao-dam-cua-cac-thanh

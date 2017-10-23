@@ -1,1 +1,0 @@
-Christ Phục Sinh Cứu Tôi|04:01|6|bai-hat-ca-ngoi-chua.ch.christ-phuc-sinh-cuu-toi

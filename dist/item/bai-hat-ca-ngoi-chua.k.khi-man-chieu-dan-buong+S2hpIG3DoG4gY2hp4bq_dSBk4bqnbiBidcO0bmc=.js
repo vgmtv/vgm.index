@@ -1,1 +1,0 @@
-Khi màn chiếu dần buông|05:31|0|bai-hat-ca-ngoi-chua.k.khi-man-chieu-dan-buong

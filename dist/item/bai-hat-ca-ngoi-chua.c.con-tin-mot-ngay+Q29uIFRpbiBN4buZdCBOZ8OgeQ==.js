@@ -1,1 +1,0 @@
-Con Tin Một Ngày|05:50|6|bai-hat-ca-ngoi-chua.c.con-tin-mot-ngay

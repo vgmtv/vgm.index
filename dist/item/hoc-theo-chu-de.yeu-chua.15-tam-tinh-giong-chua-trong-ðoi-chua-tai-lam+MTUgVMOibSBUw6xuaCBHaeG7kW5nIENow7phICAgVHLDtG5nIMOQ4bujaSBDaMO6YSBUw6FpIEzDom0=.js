@@ -1,1 +1,0 @@
-15 Tâm Tình Giống Chúa   Trông Ðợi Chúa Tái Lâm|27:21|14|hoc-theo-chu-de.yeu-chua.15-tam-tinh-giong-chua-trong-ðoi-chua-tai-lam

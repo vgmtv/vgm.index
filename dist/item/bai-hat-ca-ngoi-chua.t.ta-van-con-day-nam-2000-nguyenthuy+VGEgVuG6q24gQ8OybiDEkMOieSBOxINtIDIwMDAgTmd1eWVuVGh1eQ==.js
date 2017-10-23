@@ -1,1 +1,0 @@
-Ta Vẫn Còn Đây Năm 2000 NguyenThuy|05:05|6|bai-hat-ca-ngoi-chua.t.ta-van-con-day-nam-2000-nguyenthuy

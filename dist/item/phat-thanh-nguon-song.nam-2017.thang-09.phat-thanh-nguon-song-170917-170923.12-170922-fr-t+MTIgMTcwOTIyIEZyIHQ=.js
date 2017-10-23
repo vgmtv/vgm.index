@@ -1,1 +1,0 @@
-12 170922 Fr t|29:39|0|phat-thanh-nguon-song.nam-2017.thang-09.phat-thanh-nguon-song-170917-170923.12-170922-fr-t

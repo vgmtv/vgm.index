@@ -1,1 +1,0 @@
-Gác Nhẹ|04:24|6|bai-hat-ca-ngoi-chua.g.gac-nhe

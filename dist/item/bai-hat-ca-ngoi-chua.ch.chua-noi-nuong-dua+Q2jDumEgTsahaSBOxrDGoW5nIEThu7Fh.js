@@ -1,1 +1,0 @@
-Chúa Nơi Nương Dựa|04:42|6|bai-hat-ca-ngoi-chua.ch.chua-noi-nuong-dua

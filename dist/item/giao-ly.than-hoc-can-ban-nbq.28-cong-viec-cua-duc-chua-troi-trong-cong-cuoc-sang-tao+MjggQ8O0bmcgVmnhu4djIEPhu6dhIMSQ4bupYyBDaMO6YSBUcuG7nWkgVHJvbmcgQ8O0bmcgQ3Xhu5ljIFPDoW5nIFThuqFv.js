@@ -1,1 +1,0 @@
-28 Công Việc Của Đức Chúa Trời Trong Công Cuộc Sáng Tạo|25:34|12|giao-ly.than-hoc-can-ban-nbq.28-cong-viec-cua-duc-chua-troi-trong-cong-cuoc-sang-tao

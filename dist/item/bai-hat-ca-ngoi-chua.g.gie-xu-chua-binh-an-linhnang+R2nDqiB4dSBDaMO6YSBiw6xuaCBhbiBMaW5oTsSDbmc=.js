@@ -1,1 +1,0 @@
-Giê xu Chúa bình an LinhNăng|05:29|0|bai-hat-ca-ngoi-chua.g.gie-xu-chua-binh-an-linhnang

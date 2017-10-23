@@ -1,1 +1,0 @@
-Cảm Tạ|05:21|6|bai-hat-ca-ngoi-chua.c.cam-ta

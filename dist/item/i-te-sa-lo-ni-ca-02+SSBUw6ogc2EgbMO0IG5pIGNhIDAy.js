@@ -1,0 +1,1 @@
+I Tê sa lô ni ca 02|03:44|31|i-te-sa-lo-ni-ca-02

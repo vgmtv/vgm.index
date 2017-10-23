@@ -1,1 +1,0 @@
-Lạy Chúa Xin Mở Mắt Con|03:25|6|bai-hat-ca-ngoi-chua.l.lay-chua-xin-mo-mat-con

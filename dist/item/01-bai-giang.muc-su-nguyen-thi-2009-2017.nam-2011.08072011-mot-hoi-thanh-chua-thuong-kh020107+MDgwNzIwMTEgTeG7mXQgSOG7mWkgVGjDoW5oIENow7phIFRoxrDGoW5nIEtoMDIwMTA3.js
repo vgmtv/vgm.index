@@ -1,1 +1,0 @@
-08072011 Một Hội Thánh Chúa Thương Kh020107|40:29|0|01-bai-giang.muc-su-nguyen-thi-2009-2017.nam-2011.08072011-mot-hoi-thanh-chua-thuong-kh020107

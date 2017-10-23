@@ -1,1 +1,0 @@
-Tôi Không Còn Ngạc Nhiên|05:34|6|bai-hat-ca-ngoi-chua.t.toi-khong-con-ngac-nhien

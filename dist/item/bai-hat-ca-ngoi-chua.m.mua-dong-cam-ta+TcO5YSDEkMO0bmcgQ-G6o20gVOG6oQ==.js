@@ -1,1 +1,0 @@
-Mùa Đông Cảm Tạ|04:26|6|bai-hat-ca-ngoi-chua.m.mua-dong-cam-ta

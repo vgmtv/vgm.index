@@ -1,1 +1,0 @@
-Tôi Là Ai 2 BichVan LePhuocDat|05:07|6|bai-hat-ca-ngoi-chua.t.toi-la-ai-2-bichvan-lephuocdat

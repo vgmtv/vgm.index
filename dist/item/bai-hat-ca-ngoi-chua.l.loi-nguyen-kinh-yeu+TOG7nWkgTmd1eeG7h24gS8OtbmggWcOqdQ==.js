@@ -1,1 +1,0 @@
-Lời Nguyện Kính Yêu|02:35|6|bai-hat-ca-ngoi-chua.l.loi-nguyen-kinh-yeu

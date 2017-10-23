@@ -1,1 +1,0 @@
-Vì Ai|04:36|6|bai-hat-ca-ngoi-chua.v.vi-ai

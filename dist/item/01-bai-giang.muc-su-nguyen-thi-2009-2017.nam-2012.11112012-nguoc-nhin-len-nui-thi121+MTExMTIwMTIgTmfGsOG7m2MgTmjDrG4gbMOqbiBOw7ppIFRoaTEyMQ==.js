@@ -1,1 +1,0 @@
-11112012 Ngước Nhìn lên Núi Thi121|30:37|0|01-bai-giang.muc-su-nguyen-thi-2009-2017.nam-2012.11112012-nguoc-nhin-len-nui-thi121

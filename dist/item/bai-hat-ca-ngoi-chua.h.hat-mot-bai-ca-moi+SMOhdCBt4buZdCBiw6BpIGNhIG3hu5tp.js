@@ -1,1 +1,0 @@
-Hát một bài ca mới|02:36|0|bai-hat-ca-ngoi-chua.h.hat-mot-bai-ca-moi

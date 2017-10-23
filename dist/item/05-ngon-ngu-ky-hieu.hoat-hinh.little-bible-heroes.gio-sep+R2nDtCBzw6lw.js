@@ -1,1 +1,0 @@
-Giô sép|01:30|0|05-ngon-ngu-ky-hieu.hoat-hinh.little-bible-heroes.gio-sep

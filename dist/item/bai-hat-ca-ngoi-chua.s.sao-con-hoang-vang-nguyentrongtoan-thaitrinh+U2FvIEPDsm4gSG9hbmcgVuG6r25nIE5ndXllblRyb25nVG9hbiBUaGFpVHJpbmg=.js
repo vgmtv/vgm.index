@@ -1,1 +1,0 @@
-Sao Còn Hoang Vắng NguyenTrongToan ThaiTrinh|06:10|0|bai-hat-ca-ngoi-chua.s.sao-con-hoang-vang-nguyentrongtoan-thaitrinh

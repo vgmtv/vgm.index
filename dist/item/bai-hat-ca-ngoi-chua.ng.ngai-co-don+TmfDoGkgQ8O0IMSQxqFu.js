@@ -1,1 +1,0 @@
-Ngài Cô Đơn|05:11|6|bai-hat-ca-ngoi-chua.ng.ngai-co-don

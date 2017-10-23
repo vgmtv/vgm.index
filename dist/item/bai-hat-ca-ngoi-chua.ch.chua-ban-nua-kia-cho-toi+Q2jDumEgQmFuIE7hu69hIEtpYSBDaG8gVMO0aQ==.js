@@ -1,1 +1,0 @@
-Chúa Ban Nữa Kia Cho Tôi|04:02|6|bai-hat-ca-ngoi-chua.ch.chua-ban-nua-kia-cho-toi

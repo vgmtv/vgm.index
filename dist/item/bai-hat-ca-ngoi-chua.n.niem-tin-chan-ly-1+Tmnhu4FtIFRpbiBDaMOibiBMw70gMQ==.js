@@ -1,1 +1,0 @@
-Niềm Tin Chân Lý 1|06:04|6|bai-hat-ca-ngoi-chua.n.niem-tin-chan-ly-1

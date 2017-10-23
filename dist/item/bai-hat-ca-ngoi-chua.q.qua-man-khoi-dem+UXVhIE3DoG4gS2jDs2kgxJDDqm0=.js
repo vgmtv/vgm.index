@@ -1,1 +1,0 @@
-Qua Màn Khói Đêm|04:44|6|bai-hat-ca-ngoi-chua.q.qua-man-khoi-dem

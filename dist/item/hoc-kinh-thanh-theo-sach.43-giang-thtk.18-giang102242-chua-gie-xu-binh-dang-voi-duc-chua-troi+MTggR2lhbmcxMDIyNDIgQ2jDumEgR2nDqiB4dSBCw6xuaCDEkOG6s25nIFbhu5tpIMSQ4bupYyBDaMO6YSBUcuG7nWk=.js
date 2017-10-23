@@ -1,1 +1,0 @@
-18 Giang102242 Chúa Giê xu Bình Đẳng Với Đức Chúa Trời|27:56|6|hoc-kinh-thanh-theo-sach.43-giang-thtk.18-giang102242-chua-gie-xu-binh-dang-voi-duc-chua-troi

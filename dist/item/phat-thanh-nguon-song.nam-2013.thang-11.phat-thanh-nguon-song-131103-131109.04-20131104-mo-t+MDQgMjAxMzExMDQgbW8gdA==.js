@@ -1,1 +1,0 @@
-04 20131104 mo t|28:36|4|phat-thanh-nguon-song.nam-2013.thang-11.phat-thanh-nguon-song-131103-131109.04-20131104-mo-t

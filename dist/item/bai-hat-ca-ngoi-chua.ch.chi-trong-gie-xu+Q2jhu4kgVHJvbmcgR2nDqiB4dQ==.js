@@ -1,1 +1,0 @@
-Chỉ Trong Giê xu|04:19|6|bai-hat-ca-ngoi-chua.ch.chi-trong-gie-xu

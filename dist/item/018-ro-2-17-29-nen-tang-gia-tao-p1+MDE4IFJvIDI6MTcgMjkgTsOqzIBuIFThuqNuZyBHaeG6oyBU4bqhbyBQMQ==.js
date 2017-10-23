@@ -1,0 +1,1 @@
+018 Ro 2:17 29 Nền Tảng Giả Tạo P1|59:41|0|018-ro-2-17-29-nen-tang-gia-tao-p1

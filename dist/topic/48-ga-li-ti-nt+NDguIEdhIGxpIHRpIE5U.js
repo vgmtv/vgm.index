@@ -1,0 +1,1 @@
+48. Ga li ti NT|17|48-ga-li-ti-nt|false|6|true

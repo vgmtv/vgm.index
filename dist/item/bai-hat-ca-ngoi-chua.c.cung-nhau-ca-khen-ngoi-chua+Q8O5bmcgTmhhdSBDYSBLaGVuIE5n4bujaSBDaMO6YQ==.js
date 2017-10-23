@@ -1,1 +1,0 @@
-Cùng Nhau Ca Khen Ngợi Chúa|02:30|6|bai-hat-ca-ngoi-chua.c.cung-nhau-ca-khen-ngoi-chua

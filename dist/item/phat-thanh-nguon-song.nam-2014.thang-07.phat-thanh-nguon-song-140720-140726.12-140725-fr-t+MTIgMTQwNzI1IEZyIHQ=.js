@@ -1,1 +1,0 @@
-12 140725 Fr t|30:27|0|phat-thanh-nguon-song.nam-2014.thang-07.phat-thanh-nguon-song-140720-140726.12-140725-fr-t

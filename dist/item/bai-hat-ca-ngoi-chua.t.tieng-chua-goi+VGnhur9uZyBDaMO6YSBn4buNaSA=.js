@@ -1,1 +1,0 @@
-Tiếng Chúa gọi |05:22|6|bai-hat-ca-ngoi-chua.t.tieng-chua-goi

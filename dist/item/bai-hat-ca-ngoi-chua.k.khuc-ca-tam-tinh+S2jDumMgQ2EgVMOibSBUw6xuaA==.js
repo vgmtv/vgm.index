@@ -1,1 +1,0 @@
-Khúc Ca Tâm Tình|03:26|6|bai-hat-ca-ngoi-chua.k.khuc-ca-tam-tinh

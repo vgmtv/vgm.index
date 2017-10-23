@@ -1,1 +1,0 @@
-Giê xu Giữ Tôi Gần Thập Tự   TC 193|03:20|6|bai-hat-ca-ngoi-chua.g.gie-xu-giu-toi-gan-thap-tu-tc-193

@@ -1,1 +1,0 @@
-Gặp Chúa 2|05:25|6|bai-hat-ca-ngoi-chua.g.gap-chua-2

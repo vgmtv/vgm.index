@@ -1,0 +1,1 @@
+017 Ro 2:5 16 Nguyên Tắc Phán Xét Luật Pháp|01:00:41|0|017-ro-2-5-16-nguyen-tac-phan-xet-luat-phap

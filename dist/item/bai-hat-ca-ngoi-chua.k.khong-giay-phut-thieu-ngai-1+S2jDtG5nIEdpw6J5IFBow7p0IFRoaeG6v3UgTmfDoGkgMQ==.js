@@ -1,1 +1,0 @@
-Không Giây Phút Thiếu Ngài 1|04:41|6|bai-hat-ca-ngoi-chua.k.khong-giay-phut-thieu-ngai-1

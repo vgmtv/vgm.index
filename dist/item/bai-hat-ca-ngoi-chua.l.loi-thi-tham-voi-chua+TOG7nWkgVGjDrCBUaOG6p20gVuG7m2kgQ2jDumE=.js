@@ -1,1 +1,0 @@
-Lời Thì Thầm Với Chúa|05:25|6|bai-hat-ca-ngoi-chua.l.loi-thi-tham-voi-chua

@@ -1,1 +1,0 @@
-Thiên Chúa Ngự 1 AnhHong|04:04|6|bai-hat-ca-ngoi-chua.th.thien-chua-ngu-1-anhhong

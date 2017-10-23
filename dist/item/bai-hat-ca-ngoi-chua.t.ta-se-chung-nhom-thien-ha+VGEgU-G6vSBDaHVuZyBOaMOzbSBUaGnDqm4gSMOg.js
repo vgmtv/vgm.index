@@ -1,1 +1,0 @@
-Ta Sẽ Chung Nhóm Thiên Hà|04:47|6|bai-hat-ca-ngoi-chua.t.ta-se-chung-nhom-thien-ha

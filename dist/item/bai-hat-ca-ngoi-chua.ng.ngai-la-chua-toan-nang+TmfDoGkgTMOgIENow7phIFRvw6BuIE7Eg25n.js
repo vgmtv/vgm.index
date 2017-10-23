@@ -1,1 +1,0 @@
-Ngài Là Chúa Toàn Năng|05:44|0|bai-hat-ca-ngoi-chua.ng.ngai-la-chua-toan-nang

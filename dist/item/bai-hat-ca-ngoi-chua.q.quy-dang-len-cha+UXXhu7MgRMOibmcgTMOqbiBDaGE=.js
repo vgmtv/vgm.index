@@ -1,1 +1,0 @@
-Quỳ Dâng Lên Cha|03:02|6|bai-hat-ca-ngoi-chua.q.quy-dang-len-cha

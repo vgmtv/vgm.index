@@ -1,0 +1,1 @@
+Ga17 Kết Luận Bức Thư Khiêm Tốn|26:42|4|ga17-ket-luan-buc-thu-khiem-ton

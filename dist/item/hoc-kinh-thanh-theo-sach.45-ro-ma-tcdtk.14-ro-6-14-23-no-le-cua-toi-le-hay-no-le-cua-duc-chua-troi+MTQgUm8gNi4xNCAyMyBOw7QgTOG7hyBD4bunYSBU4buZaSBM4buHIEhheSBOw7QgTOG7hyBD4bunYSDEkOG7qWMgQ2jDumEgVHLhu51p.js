@@ -1,1 +1,0 @@
-14 Ro 6.14 23 Nô Lệ Của Tội Lệ Hay Nô Lệ Của Đức Chúa Trời|29:22|6|hoc-kinh-thanh-theo-sach.45-ro-ma-tcdtk.14-ro-6-14-23-no-le-cua-toi-le-hay-no-le-cua-duc-chua-troi

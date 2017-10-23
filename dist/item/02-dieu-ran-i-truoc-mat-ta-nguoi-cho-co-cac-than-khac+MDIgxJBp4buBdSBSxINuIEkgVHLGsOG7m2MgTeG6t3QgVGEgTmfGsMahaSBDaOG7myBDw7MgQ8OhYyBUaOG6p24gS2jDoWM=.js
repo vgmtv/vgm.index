@@ -1,0 +1,1 @@
+02 Điều Răn I Trước Mặt Ta Ngươi Chớ Có Các Thần Khác|14:43|7|02-dieu-ran-i-truoc-mat-ta-nguoi-cho-co-cac-than-khac

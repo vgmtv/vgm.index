@@ -1,1 +1,0 @@
-06 An ne|32:00|0|kich.nhung-nguoi-nu-tin-kinh.06-an-ne

@@ -1,1 +1,0 @@
-31 Công Vụ Các Sứ Đồ Mặc Lấy Quyền Phép|27:16|12|giao-ly.tan-uoc-luoc-khao-tcdtk.31-cong-vu-cac-su-do-mac-lay-quyen-phep

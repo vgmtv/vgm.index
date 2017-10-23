@@ -1,0 +1,1 @@
+07 Gia 3:13 18 4:1 3 Khôn Ngoan Thật   Động Cơ Sai Lầm|27:49|0|07-gia-3-13-18-4-1-3-khon-ngoan-that-dong-co-sai-lam

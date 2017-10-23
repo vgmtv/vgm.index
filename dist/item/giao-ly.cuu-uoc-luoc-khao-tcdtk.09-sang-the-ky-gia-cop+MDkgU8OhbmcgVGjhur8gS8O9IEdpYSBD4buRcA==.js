@@ -1,1 +1,0 @@
-09 Sáng Thế Ký Gia Cốp|30:11|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.09-sang-the-ky-gia-cop

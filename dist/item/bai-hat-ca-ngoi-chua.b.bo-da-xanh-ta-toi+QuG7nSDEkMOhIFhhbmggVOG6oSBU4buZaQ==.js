@@ -1,1 +1,0 @@
-Bờ Đá Xanh Tạ Tội|02:28|6|bai-hat-ca-ngoi-chua.b.bo-da-xanh-ta-toi

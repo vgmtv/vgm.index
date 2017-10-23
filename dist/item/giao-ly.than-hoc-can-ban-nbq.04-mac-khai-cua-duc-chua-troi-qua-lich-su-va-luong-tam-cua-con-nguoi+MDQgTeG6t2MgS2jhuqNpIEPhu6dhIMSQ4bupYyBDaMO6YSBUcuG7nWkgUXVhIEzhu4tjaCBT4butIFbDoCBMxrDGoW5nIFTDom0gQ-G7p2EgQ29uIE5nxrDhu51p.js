@@ -1,1 +1,0 @@
-04 Mặc Khải Của Đức Chúa Trời Qua Lịch Sử Và Lương Tâm Của Con Người|25:42|12|giao-ly.than-hoc-can-ban-nbq.04-mac-khai-cua-duc-chua-troi-qua-lich-su-va-luong-tam-cua-con-nguoi

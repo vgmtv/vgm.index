@@ -1,1 +1,0 @@
-47 Gióp Sự Khôn Ngoan Của Loài Người|30:06|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.47-giop-su-khon-ngoan-cua-loai-nguoi

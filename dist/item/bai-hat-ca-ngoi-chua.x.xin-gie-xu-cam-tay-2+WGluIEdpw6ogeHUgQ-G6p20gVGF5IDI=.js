@@ -1,1 +1,0 @@
-Xin Giê xu Cầm Tay 2|03:17|6|bai-hat-ca-ngoi-chua.x.xin-gie-xu-cam-tay-2

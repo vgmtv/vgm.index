@@ -1,1 +1,0 @@
-Tình Yêu Ngài 2 KimTai|04:57|6|bai-hat-ca-ngoi-chua.t.tinh-yeu-ngai-2-kimtai

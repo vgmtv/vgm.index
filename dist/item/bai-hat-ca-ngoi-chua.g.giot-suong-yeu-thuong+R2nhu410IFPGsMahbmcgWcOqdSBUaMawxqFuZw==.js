@@ -1,1 +1,0 @@
-Giọt Sương Yêu Thương|04:18|6|bai-hat-ca-ngoi-chua.g.giot-suong-yeu-thuong

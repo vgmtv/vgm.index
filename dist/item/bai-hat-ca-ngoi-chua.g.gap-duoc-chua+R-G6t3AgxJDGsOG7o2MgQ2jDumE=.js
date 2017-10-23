@@ -1,1 +1,0 @@
-Gặp Được Chúa|04:35|6|bai-hat-ca-ngoi-chua.g.gap-duoc-chua

@@ -1,1 +1,0 @@
-Ở Vút Cao Trên Trời Mây|06:01|6|bai-hat-ca-ngoi-chua.o.o-vut-cao-tren-troi-may

@@ -1,1 +1,0 @@
-Đã Qua Một Mùa Đông|05:46|6|bai-hat-ca-ngoi-chua.d.da-qua-mot-mua-dong

@@ -1,1 +1,0 @@
-Ca Khen Cha 1|03:00|6|bai-hat-ca-ngoi-chua.c.ca-khen-cha-1

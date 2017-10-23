@@ -1,1 +1,0 @@
-Tình Cha|04:57|6|bai-hat-ca-ngoi-chua.t.tinh-cha

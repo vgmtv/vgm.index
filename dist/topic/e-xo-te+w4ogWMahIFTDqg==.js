@@ -1,0 +1,1 @@
+Ê Xơ Tê|13|e-xo-te|false|6|true

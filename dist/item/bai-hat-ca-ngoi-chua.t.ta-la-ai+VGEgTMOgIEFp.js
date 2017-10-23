@@ -1,1 +1,0 @@
-Ta Là Ai|05:06|6|bai-hat-ca-ngoi-chua.t.ta-la-ai

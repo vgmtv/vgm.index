@@ -1,1 +1,0 @@
-06 Chúa Tạo Nên Vũ Trụ Vạn Vật Để Làm Gì   Đức Chúa Trời Sáng Tạo Con Người|17:35|0|giao-ly.niem-tin-can-ban.06-chua-tao-nen-vu-tru-van-vat-de-lam-gi-duc-chua-troi-sang-tao-con-nguoi

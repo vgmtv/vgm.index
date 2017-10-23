@@ -1,1 +1,0 @@
-006 Thành Tâm Tôn Vua Thánh|03:12|6|bai-hat-ca-ngoi-chua.thanh-ca-509.006-thanh-tam-ton-vua-thanh

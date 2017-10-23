@@ -1,1 +1,0 @@
-Con xin vâng lời Ngài|04:35|0|bai-hat-ca-ngoi-chua.c.con-xin-vang-loi-ngai

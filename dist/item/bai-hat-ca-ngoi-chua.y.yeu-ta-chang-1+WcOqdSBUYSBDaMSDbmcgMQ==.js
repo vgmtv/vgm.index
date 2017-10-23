@@ -1,1 +1,0 @@
-Yêu Ta Chăng 1|04:46|6|bai-hat-ca-ngoi-chua.y.yeu-ta-chang-1

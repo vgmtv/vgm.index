@@ -1,1 +1,0 @@
-11 Xin Dạy Con Yêu Ngài ThienBao|04:17|6|bai-hat-ca-ngoi-chua.0-vgm.11-xin-day-con-yeu-ngai-thienbao

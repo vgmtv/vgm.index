@@ -1,1 +1,0 @@
-Hôm Đó Khi Giê xu Chết LD|05:58|0|bai-hat-ca-ngoi-chua.h.hom-do-khi-gie-xu-chet-ld

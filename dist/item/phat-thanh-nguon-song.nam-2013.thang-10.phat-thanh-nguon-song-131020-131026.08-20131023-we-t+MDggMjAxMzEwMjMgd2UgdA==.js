@@ -1,1 +1,0 @@
-08 20131023 we t|28:30|6|phat-thanh-nguon-song.nam-2013.thang-10.phat-thanh-nguon-song-131020-131026.08-20131023-we-t

@@ -1,1 +1,0 @@
-Chúa Gánh Thay Tội 1|04:50|6|bai-hat-ca-ngoi-chua.ch.chua-ganh-thay-toi-1

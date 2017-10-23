@@ -1,1 +1,0 @@
-Ngài Là Đấng Chăn Dắt|04:05|6|bai-hat-ca-ngoi-chua.ng.ngai-la-dang-chan-dat

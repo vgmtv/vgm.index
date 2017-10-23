@@ -1,1 +1,0 @@
-Chúa Đã Chuộc Tội|04:21|6|bai-hat-ca-ngoi-chua.ch.chua-da-chuoc-toi

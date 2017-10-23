@@ -1,1 +1,0 @@
-Con Tin Nơi Ngài|03:30|6|bai-hat-ca-ngoi-chua.c.con-tin-noi-ngai

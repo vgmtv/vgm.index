@@ -1,1 +1,0 @@
-Tình Yêu Giấu Trong Lời Ngài  NhatTrung|04:43|6|bai-hat-ca-ngoi-chua.t.tinh-yeu-giau-trong-loi-ngai-nhattrung

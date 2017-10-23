@@ -1,1 +1,0 @@
-12 Châm Ngôn11|25:01|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.12-cham-ngon11

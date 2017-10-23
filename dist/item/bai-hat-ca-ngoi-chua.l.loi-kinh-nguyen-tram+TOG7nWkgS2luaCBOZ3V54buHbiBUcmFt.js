@@ -1,1 +1,0 @@
-Lời Kinh Nguyện Tram|05:35|6|bai-hat-ca-ngoi-chua.l.loi-kinh-nguyen-tram

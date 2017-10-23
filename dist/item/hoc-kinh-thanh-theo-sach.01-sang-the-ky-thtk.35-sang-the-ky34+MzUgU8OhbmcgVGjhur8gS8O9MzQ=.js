@@ -1,1 +1,0 @@
-35 Sáng Thế Ký34|28:58|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.35-sang-the-ky34

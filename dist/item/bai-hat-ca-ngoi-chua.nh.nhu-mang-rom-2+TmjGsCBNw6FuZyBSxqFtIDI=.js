@@ -1,1 +1,0 @@
-Như Máng Rơm 2|04:50|6|bai-hat-ca-ngoi-chua.nh.nhu-mang-rom-2

@@ -1,1 +1,0 @@
-24 ICo10 14 32Truyền Giảng Và Gây Dựng|16:08|6|hoc-kinh-thanh-theo-sach.46-i-co-rinh-to-tcdtk.24-ico10-14-32truyen-giang-va-gay-dung

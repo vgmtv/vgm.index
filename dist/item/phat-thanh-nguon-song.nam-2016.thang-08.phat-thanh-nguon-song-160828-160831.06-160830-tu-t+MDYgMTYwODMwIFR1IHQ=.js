@@ -1,1 +1,0 @@
-06 160830 Tu t|28:49|0|phat-thanh-nguon-song.nam-2016.thang-08.phat-thanh-nguon-song-160828-160831.06-160830-tu-t

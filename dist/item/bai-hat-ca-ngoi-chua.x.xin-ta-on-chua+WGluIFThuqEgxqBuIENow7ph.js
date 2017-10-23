@@ -1,1 +1,0 @@
-Xin Tạ Ơn Chúa|06:11|0|bai-hat-ca-ngoi-chua.x.xin-ta-on-chua

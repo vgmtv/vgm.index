@@ -1,1 +1,0 @@
-2Co Bai30 Lòng Sốt Sắng Được Thể Hiện P3 Tâm Tình Của Người Rao Giảng Tin Lành P1 110715|25:09|6|hoc-kinh-thanh-theo-sach.47-2co-rinh-to-ns.2co-bai30-long-sot-sang-duoc-the-hien-p3-tam-tinh-cua-nguoi-rao-giang-tin-lanh-p1-110715

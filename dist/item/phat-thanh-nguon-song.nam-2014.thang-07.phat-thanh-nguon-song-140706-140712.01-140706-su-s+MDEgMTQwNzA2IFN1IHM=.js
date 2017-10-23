@@ -1,1 +1,0 @@
-01 140706 Su s|29:59|0|phat-thanh-nguon-song.nam-2014.thang-07.phat-thanh-nguon-song-140706-140712.01-140706-su-s

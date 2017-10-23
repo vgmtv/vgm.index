@@ -1,1 +1,0 @@
-Chỉ Mong Gần Chúa|03:45|6|bai-hat-ca-ngoi-chua.ch.chi-mong-gan-chua

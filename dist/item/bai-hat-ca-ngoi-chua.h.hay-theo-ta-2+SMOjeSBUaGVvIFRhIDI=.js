@@ -1,1 +1,0 @@
-Hãy Theo Ta 2|04:51|6|bai-hat-ca-ngoi-chua.h.hay-theo-ta-2

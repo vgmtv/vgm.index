@@ -1,1 +1,0 @@
-Lòng Tôi Biết Chắc|03:38|6|bai-hat-ca-ngoi-chua.l.long-toi-biet-chac

@@ -1,1 +1,0 @@
-Giê xu Ngự Cùng Ấy Nơi Thiên Cung   TC 211|01:40|6|bai-hat-ca-ngoi-chua.g.gie-xu-ngu-cung-ay-noi-thien-cung-tc-211

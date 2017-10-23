@@ -1,1 +1,0 @@
-37 ITe050103 Ngày Của Chúa|36:06|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.37-ite050103-ngay-cua-chua

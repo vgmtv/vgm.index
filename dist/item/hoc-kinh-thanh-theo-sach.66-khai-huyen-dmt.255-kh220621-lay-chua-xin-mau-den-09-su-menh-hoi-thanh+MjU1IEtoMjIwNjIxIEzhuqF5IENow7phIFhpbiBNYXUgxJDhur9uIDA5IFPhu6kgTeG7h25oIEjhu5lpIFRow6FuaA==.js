@@ -1,1 +1,0 @@
-255 Kh220621 Lạy Chúa Xin Mau Đến 09 Sứ Mệnh Hội Thánh|28:34|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.255-kh220621-lay-chua-xin-mau-den-09-su-menh-hoi-thanh

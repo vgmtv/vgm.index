@@ -1,1 +1,0 @@
-Một Bông Hồng Đỏ Thẵm|05:32|6|bai-hat-ca-ngoi-chua.m.mot-bong-hong-do-tham

@@ -1,1 +1,0 @@
-Bởi Thần Ta   Bắc Phương|03:58|6|bai-hat-ca-ngoi-chua.b.boi-than-ta-bac-phuong

@@ -1,1 +1,0 @@
-Tại Nơi Thập Tự|03:43|6|bai-hat-ca-ngoi-chua.t.tai-noi-thap-tu

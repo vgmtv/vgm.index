@@ -1,1 +1,0 @@
-Chúa Bức Thành Kiên Cố Ta   TC 41|04:06|6|bai-hat-ca-ngoi-chua.ch.chua-buc-thanh-kien-co-ta-tc-41

@@ -1,1 +1,0 @@
-Luồng Gió Thổi|06:59|0|bai-hat-ca-ngoi-chua.l.luong-gio-thoi

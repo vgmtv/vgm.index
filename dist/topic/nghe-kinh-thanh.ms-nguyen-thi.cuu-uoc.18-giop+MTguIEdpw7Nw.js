@@ -1,1 +1,0 @@
-18. Gióp|42|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.18-giop|false|31|true

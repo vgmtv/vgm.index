@@ -1,0 +1,1 @@
+Ê Li Sa Bét|3|e-li-sa-bet|false|6|true

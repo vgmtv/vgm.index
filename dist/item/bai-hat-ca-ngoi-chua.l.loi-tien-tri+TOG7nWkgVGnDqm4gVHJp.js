@@ -1,1 +1,0 @@
-Lời Tiên Tri|02:11|6|bai-hat-ca-ngoi-chua.l.loi-tien-tri

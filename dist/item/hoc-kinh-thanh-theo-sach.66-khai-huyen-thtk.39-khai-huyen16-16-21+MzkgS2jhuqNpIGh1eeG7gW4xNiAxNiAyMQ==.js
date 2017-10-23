@@ -1,1 +1,0 @@
-39 Khải huyền16 16 21|29:44|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.39-khai-huyen16-16-21

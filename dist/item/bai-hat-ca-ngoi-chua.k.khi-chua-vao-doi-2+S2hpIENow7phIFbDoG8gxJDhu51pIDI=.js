@@ -1,1 +1,0 @@
-Khi Chúa Vào Đời 2|03:47|6|bai-hat-ca-ngoi-chua.k.khi-chua-vao-doi-2

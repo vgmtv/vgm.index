@@ -1,1 +1,0 @@
-Giống Màu Tình Yêu|04:54|6|bai-hat-ca-ngoi-chua.g.giong-mau-tinh-yeu

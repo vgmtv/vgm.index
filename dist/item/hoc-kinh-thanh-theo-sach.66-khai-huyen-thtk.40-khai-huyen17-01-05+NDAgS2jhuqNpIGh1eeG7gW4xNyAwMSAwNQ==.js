@@ -1,1 +1,0 @@
-40 Khải huyền17 01 05|29:03|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.40-khai-huyen17-01-05

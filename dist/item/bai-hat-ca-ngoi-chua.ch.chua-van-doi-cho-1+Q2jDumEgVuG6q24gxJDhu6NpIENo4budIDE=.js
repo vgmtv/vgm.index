@@ -1,1 +1,0 @@
-Chúa Vẫn Đợi Chờ 1|04:51|6|bai-hat-ca-ngoi-chua.ch.chua-van-doi-cho-1

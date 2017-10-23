@@ -1,1 +1,0 @@
-Lời Chúa Phán Với Tôi 1|05:27|6|bai-hat-ca-ngoi-chua.l.loi-chua-phan-voi-toi-1

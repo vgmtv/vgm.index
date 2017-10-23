@@ -1,1 +1,0 @@
-Muối Và Ánh Sáng|03:41|6|bai-hat-ca-ngoi-chua.m.muoi-va-anh-sang

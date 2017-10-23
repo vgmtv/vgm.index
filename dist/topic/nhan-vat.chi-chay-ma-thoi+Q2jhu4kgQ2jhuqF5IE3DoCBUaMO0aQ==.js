@@ -1,1 +1,0 @@
-Chỉ Chạy Mà Thôi|6|nhan-vat.chi-chay-ma-thoi|false|6|true

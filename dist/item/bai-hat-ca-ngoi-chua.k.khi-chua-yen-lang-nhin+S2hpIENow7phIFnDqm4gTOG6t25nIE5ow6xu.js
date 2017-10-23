@@ -1,1 +1,0 @@
-Khi Chúa Yên Lặng Nhìn|05:41|6|bai-hat-ca-ngoi-chua.k.khi-chua-yen-lang-nhin

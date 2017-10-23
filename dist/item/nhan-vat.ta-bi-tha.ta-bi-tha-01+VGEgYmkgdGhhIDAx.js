@@ -1,1 +1,0 @@
-Ta bi tha 01|21:19|6|nhan-vat.ta-bi-tha.ta-bi-tha-01

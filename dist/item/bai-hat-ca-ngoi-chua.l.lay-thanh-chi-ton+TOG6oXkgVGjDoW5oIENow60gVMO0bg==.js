@@ -1,1 +1,0 @@
-Lạy Thánh Chí Tôn|03:32|6|bai-hat-ca-ngoi-chua.l.lay-thanh-chi-ton

@@ -1,1 +1,0 @@
-Chúa Cất Hết Nỗi Đau|03:40|6|bai-hat-ca-ngoi-chua.ch.chua-cat-het-noi-dau

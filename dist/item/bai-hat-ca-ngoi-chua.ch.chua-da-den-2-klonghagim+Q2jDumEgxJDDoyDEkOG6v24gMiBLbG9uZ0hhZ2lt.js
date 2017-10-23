@@ -1,1 +1,0 @@
-Chúa Đã Đến 2 KlongHagim|04:30|6|bai-hat-ca-ngoi-chua.ch.chua-da-den-2-klonghagim

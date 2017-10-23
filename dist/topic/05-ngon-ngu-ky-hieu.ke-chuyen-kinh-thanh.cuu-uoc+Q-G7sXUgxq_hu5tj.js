@@ -1,1 +1,0 @@
-Cựu Ước|7|05-ngon-ngu-ky-hieu.ke-chuyen-kinh-thanh.cuu-uoc|true|0|true

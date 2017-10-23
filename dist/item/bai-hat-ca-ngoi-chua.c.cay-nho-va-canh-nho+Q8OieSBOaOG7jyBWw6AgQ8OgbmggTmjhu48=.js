@@ -1,1 +1,0 @@
-Cây Nhỏ Và Cành Nhỏ|05:35|6|bai-hat-ca-ngoi-chua.c.cay-nho-va-canh-nho

@@ -1,1 +1,0 @@
-Lời Cha 1|02:23|6|bai-hat-ca-ngoi-chua.l.loi-cha-1

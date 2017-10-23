@@ -1,1 +1,0 @@
-06 150908 tu t|29:04|0|phat-thanh-nguon-song.nam-2015.thang-09.phat-thanh-nguon-song-150906-150912.06-150908-tu-t

@@ -1,1 +1,0 @@
-Điều Chúa Hứa|05:23|6|bai-hat-ca-ngoi-chua.d.dieu-chua-hua

@@ -1,1 +1,0 @@
-Bàn Chân Rao Giảng Tin Lành|03:31|6|bai-hat-ca-ngoi-chua.b.ban-chan-rao-giang-tin-lanh

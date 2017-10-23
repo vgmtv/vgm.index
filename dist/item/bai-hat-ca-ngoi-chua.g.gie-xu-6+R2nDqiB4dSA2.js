@@ -1,1 +1,0 @@
-Giê xu 6|05:04|6|bai-hat-ca-ngoi-chua.g.gie-xu-6

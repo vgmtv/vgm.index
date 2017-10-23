@@ -1,1 +1,0 @@
-Hãy Thức Canh Trông Chờ|01:27|6|bai-hat-ca-ngoi-chua.h.hay-thuc-canh-trong-cho

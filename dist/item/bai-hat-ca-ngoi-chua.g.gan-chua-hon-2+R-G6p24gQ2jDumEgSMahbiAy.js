@@ -1,1 +1,0 @@
-Gần Chúa Hơn 2|04:47|6|bai-hat-ca-ngoi-chua.g.gan-chua-hon-2

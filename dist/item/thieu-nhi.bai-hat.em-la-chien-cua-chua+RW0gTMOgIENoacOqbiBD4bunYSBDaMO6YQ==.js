@@ -1,1 +1,0 @@
-Em Là Chiên Của Chúa|02:19|16|thieu-nhi.bai-hat.em-la-chien-cua-chua

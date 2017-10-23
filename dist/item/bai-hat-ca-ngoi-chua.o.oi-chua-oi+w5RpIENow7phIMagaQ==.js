@@ -1,1 +1,0 @@
-Ôi Chúa Ơi|06:39|6|bai-hat-ca-ngoi-chua.o.oi-chua-oi

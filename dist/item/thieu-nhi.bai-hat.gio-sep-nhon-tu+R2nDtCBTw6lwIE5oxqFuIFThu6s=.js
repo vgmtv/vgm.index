@@ -1,1 +1,0 @@
-Giô Sép Nhơn Từ|02:04|16|thieu-nhi.bai-hat.gio-sep-nhon-tu

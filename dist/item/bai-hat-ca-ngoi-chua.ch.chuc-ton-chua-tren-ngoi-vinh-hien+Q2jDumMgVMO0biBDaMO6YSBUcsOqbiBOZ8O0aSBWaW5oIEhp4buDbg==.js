@@ -1,1 +1,0 @@
-Chúc Tôn Chúa Trên Ngôi Vinh Hiển|03:38|6|bai-hat-ca-ngoi-chua.ch.chuc-ton-chua-tren-ngoi-vinh-hien

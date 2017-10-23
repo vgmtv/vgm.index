@@ -1,1 +1,0 @@
-Những Người Lữ Hành|05:17|6|bai-hat-ca-ngoi-chua.nh.nhung-nguoi-lu-hanh

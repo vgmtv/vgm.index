@@ -1,1 +1,0 @@
-06 140603 tu t|29:05|0|phat-thanh-nguon-song.nam-2014.thang-06.phat-thanh-nguon-song-140601-140607.06-140603-tu-t

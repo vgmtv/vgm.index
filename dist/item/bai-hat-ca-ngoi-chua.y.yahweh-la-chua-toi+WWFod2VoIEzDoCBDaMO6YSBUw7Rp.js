@@ -1,1 +1,0 @@
-Yahweh Là Chúa Tôi|03:29|6|bai-hat-ca-ngoi-chua.y.yahweh-la-chua-toi

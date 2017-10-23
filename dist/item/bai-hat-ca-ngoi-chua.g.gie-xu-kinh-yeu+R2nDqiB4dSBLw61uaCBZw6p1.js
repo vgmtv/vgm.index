@@ -1,1 +1,0 @@
-Giê xu Kính Yêu|03:51|6|bai-hat-ca-ngoi-chua.g.gie-xu-kinh-yeu

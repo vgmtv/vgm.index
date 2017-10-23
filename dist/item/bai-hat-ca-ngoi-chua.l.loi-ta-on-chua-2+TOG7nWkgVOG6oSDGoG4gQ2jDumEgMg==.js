@@ -1,1 +1,0 @@
-Lời Tạ Ơn Chúa 2|04:30|6|bai-hat-ca-ngoi-chua.l.loi-ta-on-chua-2

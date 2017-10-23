@@ -1,1 +1,0 @@
-Không Ai Ngoài Chúa |01:43|6|bai-hat-ca-ngoi-chua.k.khong-ai-ngoai-chua

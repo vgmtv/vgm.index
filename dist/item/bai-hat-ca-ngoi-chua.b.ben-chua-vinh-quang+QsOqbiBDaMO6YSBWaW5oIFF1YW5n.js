@@ -1,1 +1,0 @@
-Bên Chúa Vinh Quang|05:12|6|bai-hat-ca-ngoi-chua.b.ben-chua-vinh-quang

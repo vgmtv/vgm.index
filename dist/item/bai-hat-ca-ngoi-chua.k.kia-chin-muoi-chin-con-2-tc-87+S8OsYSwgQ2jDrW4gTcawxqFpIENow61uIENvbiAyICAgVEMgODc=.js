@@ -1,1 +1,0 @@
-Kìa, Chín Mươi Chín Con 2   TC 87|06:10|6|bai-hat-ca-ngoi-chua.k.kia-chin-muoi-chin-con-2-tc-87

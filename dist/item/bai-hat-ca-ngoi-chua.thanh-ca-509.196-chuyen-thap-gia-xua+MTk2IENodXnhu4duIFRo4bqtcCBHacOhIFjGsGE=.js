@@ -1,1 +1,0 @@
-196 Chuyện Thập Giá Xưa|04:16|6|bai-hat-ca-ngoi-chua.thanh-ca-509.196-chuyen-thap-gia-xua

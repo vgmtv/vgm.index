@@ -1,1 +1,0 @@
-10 HTT Mat 18 15 21 Kỷ Luật Trong Hội Thánh Tôi 01 Chúa Kỷ Luật|25:48|14|hoc-theo-chu-de.hoi-thanh-va-toi.10-htt-mat-18-15-21-ky-luat-trong-hoi-thanh-toi-01-chua-ky-luat

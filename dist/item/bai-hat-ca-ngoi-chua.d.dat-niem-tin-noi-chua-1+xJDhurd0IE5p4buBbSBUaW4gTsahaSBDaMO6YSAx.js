@@ -1,1 +1,0 @@
-Đặt Niềm Tin Nơi Chúa 1|03:27|6|bai-hat-ca-ngoi-chua.d.dat-niem-tin-noi-chua-1

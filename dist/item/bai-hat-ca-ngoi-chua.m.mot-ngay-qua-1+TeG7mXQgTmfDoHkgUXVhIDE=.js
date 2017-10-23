@@ -1,1 +1,0 @@
-Một Ngày Qua 1|04:55|6|bai-hat-ca-ngoi-chua.m.mot-ngay-qua-1

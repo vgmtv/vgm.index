@@ -1,1 +1,0 @@
-Chung Một Nhịp Đàn|03:14|6|bai-hat-ca-ngoi-chua.ch.chung-mot-nhip-dan

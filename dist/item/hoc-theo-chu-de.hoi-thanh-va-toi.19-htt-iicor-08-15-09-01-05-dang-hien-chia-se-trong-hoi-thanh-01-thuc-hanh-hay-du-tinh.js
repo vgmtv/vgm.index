@@ -1,1 +1,0 @@
-19 HTT  IICôr 08 15 09 01 05 Dâng Hiến Chia Sẻ Trong Hội Thánh 01 Thực Hành Hay Dự Tính|29:04|14|hoc-theo-chu-de.hoi-thanh-va-toi.19-htt-iicor-08-15-09-01-05-dang-hien-chia-se-trong-hoi-thanh-01-thuc-hanh-hay-du-tinh

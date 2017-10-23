@@ -1,1 +1,0 @@
-Con Nợ Ngài|04:46|6|bai-hat-ca-ngoi-chua.c.con-no-ngai

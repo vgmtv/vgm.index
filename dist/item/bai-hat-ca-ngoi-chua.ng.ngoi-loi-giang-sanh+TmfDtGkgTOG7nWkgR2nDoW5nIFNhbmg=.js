@@ -1,1 +1,0 @@
-Ngôi Lời Giáng Sanh|06:16|6|bai-hat-ca-ngoi-chua.ng.ngoi-loi-giang-sanh

@@ -1,1 +1,0 @@
-18Ro021729 Nền Tảng Giả Tạo P1|01:06:29|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.thu-tin-ro-ma-ms-dang-minh-tri.18ro021729-nen-tang-gia-tao-p1

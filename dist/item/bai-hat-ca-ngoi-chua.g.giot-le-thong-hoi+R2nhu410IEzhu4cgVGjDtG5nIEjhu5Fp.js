@@ -1,1 +1,0 @@
-Giọt Lệ Thông Hối|05:22|6|bai-hat-ca-ngoi-chua.g.giot-le-thong-hoi

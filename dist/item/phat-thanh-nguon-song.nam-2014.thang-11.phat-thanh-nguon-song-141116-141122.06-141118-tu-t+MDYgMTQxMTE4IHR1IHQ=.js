@@ -1,1 +1,0 @@
-06 141118 tu t|28:57|0|phat-thanh-nguon-song.nam-2014.thang-11.phat-thanh-nguon-song-141116-141122.06-141118-tu-t

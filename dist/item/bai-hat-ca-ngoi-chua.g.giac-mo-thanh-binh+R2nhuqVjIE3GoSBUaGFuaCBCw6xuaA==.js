@@ -1,1 +1,0 @@
-Giấc Mơ Thanh Bình|04:21|6|bai-hat-ca-ngoi-chua.g.giac-mo-thanh-binh

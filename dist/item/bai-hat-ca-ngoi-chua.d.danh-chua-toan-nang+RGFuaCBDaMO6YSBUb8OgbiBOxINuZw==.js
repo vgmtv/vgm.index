@@ -1,1 +1,0 @@
-Danh Chúa Toàn Năng|02:41|6|bai-hat-ca-ngoi-chua.d.danh-chua-toan-nang

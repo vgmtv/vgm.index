@@ -1,1 +1,0 @@
-Giê xu Truyền Ban Mình Soi Sáng   TC 368|01:46|6|bai-hat-ca-ngoi-chua.g.gie-xu-truyen-ban-minh-soi-sang-tc-368

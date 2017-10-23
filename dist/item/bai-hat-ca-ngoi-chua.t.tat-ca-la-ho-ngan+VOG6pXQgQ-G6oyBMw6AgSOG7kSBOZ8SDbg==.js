@@ -1,1 +1,0 @@
-Tất Cả Là Hố Ngăn|05:38|6|bai-hat-ca-ngoi-chua.t.tat-ca-la-ho-ngan

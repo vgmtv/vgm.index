@@ -1,1 +1,0 @@
-Ngài thật xứng đáng|03:47|0|bai-hat-ca-ngoi-chua.ng.ngai-that-xung-dang

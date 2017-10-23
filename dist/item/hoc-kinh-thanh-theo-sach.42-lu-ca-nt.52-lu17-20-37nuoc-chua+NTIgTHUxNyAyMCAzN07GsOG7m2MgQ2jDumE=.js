@@ -1,1 +1,0 @@
-52 Lu17 20 37Nước Chúa|47:26|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.52-lu17-20-37nuoc-chua

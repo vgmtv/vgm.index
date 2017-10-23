@@ -1,1 +1,0 @@
-Người Sa ma ri Nhân Lành|02:12|0|05-ngon-ngu-ky-hieu.hoat-hinh.wildbible.nguoi-sa-ma-ri-nhan-lanh

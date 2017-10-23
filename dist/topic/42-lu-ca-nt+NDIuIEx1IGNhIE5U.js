@@ -1,0 +1,1 @@
+42. Lu ca NT|70|42-lu-ca-nt|false|6|true

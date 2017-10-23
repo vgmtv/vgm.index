@@ -1,1 +1,0 @@
-Trời Mùa Đông LD|04:26|0|bai-hat-ca-ngoi-chua.tr.troi-mua-dong-ld

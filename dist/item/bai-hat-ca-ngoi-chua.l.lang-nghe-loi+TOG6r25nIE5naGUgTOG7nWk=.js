@@ -1,1 +1,0 @@
-Lắng Nghe Lời|05:14|6|bai-hat-ca-ngoi-chua.l.lang-nghe-loi

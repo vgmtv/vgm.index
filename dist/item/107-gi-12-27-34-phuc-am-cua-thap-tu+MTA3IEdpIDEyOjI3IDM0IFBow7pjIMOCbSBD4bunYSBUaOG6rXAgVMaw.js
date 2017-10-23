@@ -1,0 +1,1 @@
+107 Gi 12:27 34 Phúc Âm Của Thập Tư|31:42|12|107-gi-12-27-34-phuc-am-cua-thap-tu

@@ -1,1 +1,0 @@
-24 Châm Ngôn23|31:42|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.24-cham-ngon23

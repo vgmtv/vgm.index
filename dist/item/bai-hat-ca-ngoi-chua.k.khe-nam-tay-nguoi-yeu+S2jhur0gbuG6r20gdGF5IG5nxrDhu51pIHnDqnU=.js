@@ -1,1 +1,0 @@
-Khẽ nắm tay người yêu|05:06|0|bai-hat-ca-ngoi-chua.k.khe-nam-tay-nguoi-yeu

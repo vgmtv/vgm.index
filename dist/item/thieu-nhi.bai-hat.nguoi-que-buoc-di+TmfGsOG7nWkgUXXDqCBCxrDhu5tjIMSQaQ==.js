@@ -1,1 +1,0 @@
-Người Què Bước Đi|01:44|16|thieu-nhi.bai-hat.nguoi-que-buoc-di

@@ -1,1 +1,0 @@
-Chúa Yêu Tôi|03:06|6|bai-hat-ca-ngoi-chua.ch.chua-yeu-toi

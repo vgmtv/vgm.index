@@ -1,1 +1,0 @@
-Tâm Tình Người Cầu Thay|04:18|6|bai-hat-ca-ngoi-chua.t.tam-tinh-nguoi-cau-thay

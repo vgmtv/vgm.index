@@ -1,1 +1,0 @@
-Chính Giê xu Là Vua   Hợp Ca|03:54|6|bai-hat-ca-ngoi-chua.ch.chinh-gie-xu-la-vua-hop-ca

@@ -1,1 +1,0 @@
-Lời Cha|03:28|16|thieu-nhi.bai-hat.loi-cha

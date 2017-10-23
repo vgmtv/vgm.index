@@ -1,1 +1,0 @@
-Chúa Chăn Nuôi Tôi|02:55|6|bai-hat-ca-ngoi-chua.ch.chua-chan-nuoi-toi

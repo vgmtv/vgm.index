@@ -1,1 +1,0 @@
-Tình Chúa Nhân Từ|05:07|6|bai-hat-ca-ngoi-chua.t.tinh-chua-nhan-tu

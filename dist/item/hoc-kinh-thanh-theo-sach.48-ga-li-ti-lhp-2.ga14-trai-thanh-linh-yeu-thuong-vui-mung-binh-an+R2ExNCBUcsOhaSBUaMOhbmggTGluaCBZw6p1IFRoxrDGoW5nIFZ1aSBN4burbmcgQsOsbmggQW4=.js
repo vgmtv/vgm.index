@@ -1,1 +1,0 @@
-Ga14 Trái Thánh Linh Yêu Thương Vui Mừng Bình An|30:09|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga14-trai-thanh-linh-yeu-thuong-vui-mung-binh-an

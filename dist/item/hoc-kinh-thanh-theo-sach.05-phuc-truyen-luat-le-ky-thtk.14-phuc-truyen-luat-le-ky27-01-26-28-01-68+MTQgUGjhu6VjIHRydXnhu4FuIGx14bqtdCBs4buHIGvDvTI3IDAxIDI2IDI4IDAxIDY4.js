@@ -1,1 +1,0 @@
-14 Phục truyền luật lệ ký27 01 26 28 01 68|25:27|6|hoc-kinh-thanh-theo-sach.05-phuc-truyen-luat-le-ky-thtk.14-phuc-truyen-luat-le-ky27-01-26-28-01-68

@@ -1,1 +1,0 @@
-Có một Người|04:18|0|bai-hat-ca-ngoi-chua.c.co-mot-nguoi

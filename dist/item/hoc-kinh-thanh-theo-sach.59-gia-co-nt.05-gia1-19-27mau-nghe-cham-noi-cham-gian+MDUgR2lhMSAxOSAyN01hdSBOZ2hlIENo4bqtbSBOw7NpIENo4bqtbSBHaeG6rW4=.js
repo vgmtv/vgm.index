@@ -1,1 +1,0 @@
-05 Gia1 19 27Mau Nghe Chậm Nói Chậm Giận|49:14|6|hoc-kinh-thanh-theo-sach.59-gia-co-nt.05-gia1-19-27mau-nghe-cham-noi-cham-gian

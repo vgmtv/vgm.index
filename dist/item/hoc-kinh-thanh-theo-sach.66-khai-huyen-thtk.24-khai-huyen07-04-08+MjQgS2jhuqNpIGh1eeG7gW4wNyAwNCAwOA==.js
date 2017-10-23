@@ -1,1 +1,0 @@
-24 Khải huyền07 04 08|25:16|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.24-khai-huyen07-04-08

@@ -1,1 +1,0 @@
-Chúa Biết Rõ 2|06:08|6|bai-hat-ca-ngoi-chua.ch.chua-biet-ro-2

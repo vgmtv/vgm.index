@@ -1,1 +1,0 @@
-Nằm Yên Trong Máng Chiên Kia|02:30|6|bai-hat-ca-ngoi-chua.n.nam-yen-trong-mang-chien-kia

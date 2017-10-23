@@ -1,0 +1,1 @@
+37. A ghê|2|37-a-ghe|false|31|true

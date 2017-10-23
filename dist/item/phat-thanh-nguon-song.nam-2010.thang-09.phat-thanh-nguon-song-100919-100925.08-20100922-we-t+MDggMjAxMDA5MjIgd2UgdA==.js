@@ -1,1 +1,0 @@
-08 20100922 we t|28:39|6|phat-thanh-nguon-song.nam-2010.thang-09.phat-thanh-nguon-song-100919-100925.08-20100922-we-t

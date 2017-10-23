@@ -1,1 +1,0 @@
-Kìa Ai Như Giê xu|02:41|6|bai-hat-ca-ngoi-chua.k.kia-ai-nhu-gie-xu

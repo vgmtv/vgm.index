@@ -1,1 +1,0 @@
-Chúa Sinh Ra Đời Ban Niềm Vui|04:02|6|bai-hat-ca-ngoi-chua.ch.chua-sinh-ra-doi-ban-niem-vui

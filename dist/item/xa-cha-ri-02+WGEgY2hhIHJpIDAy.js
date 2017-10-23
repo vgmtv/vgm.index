@@ -1,0 +1,1 @@
+Xa cha ri 02|02:00|31|xa-cha-ri-02

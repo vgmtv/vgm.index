@@ -1,1 +1,0 @@
-Gô Gô Tha Thập Tự Giá Đường sự sống đời đời |05:53|0|bai-hat-ca-ngoi-chua.g.go-go-tha-thap-tu-gia-duong-su-song-doi-doi

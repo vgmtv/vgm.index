@@ -1,0 +1,1 @@
+Giê Sa Bên|8|gie-sa-ben|false|6|true

@@ -1,1 +1,0 @@
-Sao Còn Lo Sợ HoangBich|03:54|6|bai-hat-ca-ngoi-chua.s.sao-con-lo-so-hoangbich

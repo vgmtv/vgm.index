@@ -1,1 +1,0 @@
-Mỗi khi tâm cô đơn NguyenThuy|05:34|0|bai-hat-ca-ngoi-chua.m.moi-khi-tam-co-don-nguyenthuy

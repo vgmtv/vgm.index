@@ -1,1 +1,0 @@
-01 A ga|31:06|0|kich.nhung-nguoi-nu-tin-kinh.01-a-ga

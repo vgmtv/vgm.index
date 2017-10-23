@@ -1,1 +1,0 @@
-Ghết sê ma nê Đêm Thương Khó|05:19|6|bai-hat-ca-ngoi-chua.g.ghet-se-ma-ne-dem-thuong-kho

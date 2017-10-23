@@ -1,1 +1,0 @@
-Biết Chúa Biết Con|06:32|6|bai-hat-ca-ngoi-chua.b.biet-chua-biet-con

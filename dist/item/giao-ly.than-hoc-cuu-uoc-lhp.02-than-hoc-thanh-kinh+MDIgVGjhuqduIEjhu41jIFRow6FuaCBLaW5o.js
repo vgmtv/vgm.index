@@ -1,1 +1,0 @@
-02 Thần Học Thánh Kinh|18:05|12|giao-ly.than-hoc-cuu-uoc-lhp.02-than-hoc-thanh-kinh

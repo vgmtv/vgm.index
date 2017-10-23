@@ -1,1 +1,0 @@
-Giống Như Chúa|04:04|6|bai-hat-ca-ngoi-chua.g.giong-nhu-chua

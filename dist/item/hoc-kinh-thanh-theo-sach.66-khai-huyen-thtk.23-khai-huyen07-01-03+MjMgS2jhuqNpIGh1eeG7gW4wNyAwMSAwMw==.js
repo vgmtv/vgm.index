@@ -1,1 +1,0 @@
-23 Khải huyền07 01 03|25:32|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.23-khai-huyen07-01-03

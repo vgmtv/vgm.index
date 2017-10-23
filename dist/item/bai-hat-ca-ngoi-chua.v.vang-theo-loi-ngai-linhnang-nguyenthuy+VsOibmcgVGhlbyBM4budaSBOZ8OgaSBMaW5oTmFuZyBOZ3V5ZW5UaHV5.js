@@ -1,1 +1,0 @@
-Vâng Theo Lời Ngài LinhNang NguyenThuy|02:26|6|bai-hat-ca-ngoi-chua.v.vang-theo-loi-ngai-linhnang-nguyenthuy

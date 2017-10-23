@@ -1,0 +1,1 @@
+16 Giu0810 Lỗi Lộng Ngôn Của Kẻ Bội Đạo|25:20|12|16-giu0810-loi-long-ngon-cua-ke-boi-dao

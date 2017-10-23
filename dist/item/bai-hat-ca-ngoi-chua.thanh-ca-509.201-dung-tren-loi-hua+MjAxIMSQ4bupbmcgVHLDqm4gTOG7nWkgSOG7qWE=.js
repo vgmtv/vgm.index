@@ -1,1 +1,0 @@
-201 Đứng Trên Lời Hứa|03:20|6|bai-hat-ca-ngoi-chua.thanh-ca-509.201-dung-tren-loi-hua

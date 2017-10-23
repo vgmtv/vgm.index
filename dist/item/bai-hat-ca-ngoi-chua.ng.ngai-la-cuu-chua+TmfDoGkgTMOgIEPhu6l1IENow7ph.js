@@ -1,1 +1,0 @@
-Ngài Là Cứu Chúa|05:07|6|bai-hat-ca-ngoi-chua.ng.ngai-la-cuu-chua

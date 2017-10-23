@@ -1,1 +1,0 @@
-Ta đứng đây nghe ân tình|06:14|0|bai-hat-ca-ngoi-chua.t.ta-dung-day-nghe-an-tinh

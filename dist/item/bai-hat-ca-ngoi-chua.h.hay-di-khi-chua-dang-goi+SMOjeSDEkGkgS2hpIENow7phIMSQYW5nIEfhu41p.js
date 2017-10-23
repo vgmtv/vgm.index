@@ -1,1 +1,0 @@
-Hãy Đi Khi Chúa Đang Gọi|02:38|6|bai-hat-ca-ngoi-chua.h.hay-di-khi-chua-dang-goi

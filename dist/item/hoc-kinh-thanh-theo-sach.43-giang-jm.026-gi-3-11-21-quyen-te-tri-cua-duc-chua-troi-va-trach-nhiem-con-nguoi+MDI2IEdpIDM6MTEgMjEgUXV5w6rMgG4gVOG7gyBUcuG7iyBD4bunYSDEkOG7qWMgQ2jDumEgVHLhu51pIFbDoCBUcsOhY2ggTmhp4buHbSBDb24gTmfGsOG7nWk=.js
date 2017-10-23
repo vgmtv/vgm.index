@@ -1,1 +1,0 @@
-026 Gi 3:11 21 Quyền Tể Trị Của Đức Chúa Trời Và Trách Nhiệm Con Người|29:20|12|hoc-kinh-thanh-theo-sach.43-giang-jm.026-gi-3-11-21-quyen-te-tri-cua-duc-chua-troi-va-trach-nhiem-con-nguoi

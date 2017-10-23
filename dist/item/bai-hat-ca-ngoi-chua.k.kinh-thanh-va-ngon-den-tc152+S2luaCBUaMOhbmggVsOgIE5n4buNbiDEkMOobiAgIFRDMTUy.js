@@ -1,1 +1,0 @@
-Kinh Thánh Và Ngọn Đèn   TC152|02:19|6|bai-hat-ca-ngoi-chua.k.kinh-thanh-va-ngon-den-tc152

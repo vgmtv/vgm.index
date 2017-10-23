@@ -1,1 +1,0 @@
-1Co Bai64 Hãy Ước Ao Tự Nói Tiên Tri 140105|13:12|6|hoc-kinh-thanh-theo-sach.46-i-co-rinh-to-ns.1co-bai64-hay-uoc-ao-tu-noi-tien-tri-140105

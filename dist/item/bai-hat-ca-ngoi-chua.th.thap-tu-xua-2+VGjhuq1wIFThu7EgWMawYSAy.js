@@ -1,1 +1,0 @@
-Thập Tự Xưa 2|06:14|6|bai-hat-ca-ngoi-chua.th.thap-tu-xua-2

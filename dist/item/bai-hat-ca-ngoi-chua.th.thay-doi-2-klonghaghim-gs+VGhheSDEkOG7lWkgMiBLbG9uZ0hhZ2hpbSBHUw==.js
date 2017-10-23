@@ -1,1 +1,0 @@
-Thay Đổi 2 KlongHaghim GS|05:00|6|bai-hat-ca-ngoi-chua.th.thay-doi-2-klonghaghim-gs

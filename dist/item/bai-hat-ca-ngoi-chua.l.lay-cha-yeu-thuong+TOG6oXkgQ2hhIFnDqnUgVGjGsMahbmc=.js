@@ -1,1 +1,0 @@
-Lạy Cha Yêu Thương|03:02|6|bai-hat-ca-ngoi-chua.l.lay-cha-yeu-thuong

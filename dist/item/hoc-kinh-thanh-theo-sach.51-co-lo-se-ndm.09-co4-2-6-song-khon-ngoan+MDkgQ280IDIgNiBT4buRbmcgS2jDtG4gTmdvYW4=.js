@@ -1,1 +1,0 @@
-09 Co4 2 6 Sống Khôn Ngoan|21:52|4|hoc-kinh-thanh-theo-sach.51-co-lo-se-ndm.09-co4-2-6-song-khon-ngoan

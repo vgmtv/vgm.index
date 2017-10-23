@@ -1,1 +1,0 @@
-Lạy Chúa hãy lắng|05:02|0|bai-hat-ca-ngoi-chua.l.lay-chua-hay-lang

@@ -1,1 +1,0 @@
-Giê xu, Niềm Tin, Hy Vọng|05:09|6|bai-hat-ca-ngoi-chua.g.gie-xu-niem-tin-hy-vong

@@ -1,1 +1,0 @@
-10 Sáng thế ký 01 01 07 Hậu Quả Không Nghe Chúa 1|27:19|6|hoc-theo-chu-de.tiep-can.10-sang-the-ky-01-01-07-hau-qua-khong-nghe-chua-1

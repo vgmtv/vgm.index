@@ -1,1 +1,0 @@
-03 Ro 1 Bản Tánh Buông Thả Của Loài Người|43:36|6|hoc-kinh-thanh-theo-sach.45-ro-ma-tcdtk.03-ro-1-ban-tanh-buong-tha-cua-loai-nguoi

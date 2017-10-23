@@ -1,0 +1,1 @@
+08 ICo3 16 20Người Khôn Người Dại|15:08|6|08-ico3-16-20nguoi-khon-nguoi-dai

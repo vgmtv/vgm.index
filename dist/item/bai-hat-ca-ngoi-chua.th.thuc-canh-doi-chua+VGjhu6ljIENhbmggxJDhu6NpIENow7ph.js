@@ -1,1 +1,0 @@
-Thức Canh Đợi Chúa|06:49|6|bai-hat-ca-ngoi-chua.th.thuc-canh-doi-chua

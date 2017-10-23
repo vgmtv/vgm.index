@@ -1,1 +1,0 @@
-Ngài Đã Biết|04:42|6|bai-hat-ca-ngoi-chua.ng.ngai-da-biet

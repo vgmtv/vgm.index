@@ -1,1 +1,0 @@
-Con Tin Cha 2|04:28|6|bai-hat-ca-ngoi-chua.c.con-tin-cha-2

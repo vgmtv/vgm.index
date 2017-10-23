@@ -1,1 +1,0 @@
-39 Công Vụ Các Sứ Đồ Lời Chứng Của Phao Lô|29:31|12|giao-ly.tan-uoc-luoc-khao-tcdtk.39-cong-vu-cac-su-do-loi-chung-cua-phao-lo

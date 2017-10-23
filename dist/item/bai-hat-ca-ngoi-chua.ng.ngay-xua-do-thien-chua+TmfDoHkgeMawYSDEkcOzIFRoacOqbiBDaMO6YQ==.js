@@ -1,1 +1,0 @@
-Ngày xưa đó Thiên Chúa|05:34|0|bai-hat-ca-ngoi-chua.ng.ngay-xua-do-thien-chua

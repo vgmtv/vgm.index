@@ -1,1 +1,0 @@
-145 Nền Hội Thánh Trên Bàn Thạch Kiên Cố|05:38|6|bai-hat-ca-ngoi-chua.thanh-ca-509.145-nen-hoi-thanh-tren-ban-thach-kien-co

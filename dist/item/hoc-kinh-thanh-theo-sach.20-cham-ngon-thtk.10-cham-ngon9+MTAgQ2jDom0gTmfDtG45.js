@@ -1,1 +1,0 @@
-10 Châm Ngôn9|27:14|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.10-cham-ngon9

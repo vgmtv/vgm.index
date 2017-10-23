@@ -1,1 +1,0 @@
-Sao Cứ Thờ Ơ|02:00|6|bai-hat-ca-ngoi-chua.s.sao-cu-tho-o

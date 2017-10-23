@@ -1,1 +1,0 @@
-Chẳng ai như Ngài|03:32|0|bai-hat-ca-ngoi-chua.ch.chang-ai-nhu-ngai

@@ -1,1 +1,0 @@
-Giê xu Như Ánh Sao|03:23|6|bai-hat-ca-ngoi-chua.g.gie-xu-nhu-anh-sao

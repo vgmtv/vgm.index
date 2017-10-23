@@ -1,1 +1,0 @@
-Lạy Thánh Tâm Chúa|03:39|6|bai-hat-ca-ngoi-chua.l.lay-thanh-tam-chua

@@ -1,1 +1,0 @@
-Nơi Đồi Gô gô tha 1|04:37|6|bai-hat-ca-ngoi-chua.n.noi-doi-go-go-tha-1

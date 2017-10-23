@@ -1,1 +1,0 @@
-048 Gi 5:25 29 Kẻ Chết Sẽ Nghe Đấng Christ|25:23|12|hoc-kinh-thanh-theo-sach.43-giang-jm.048-gi-5-25-29-ke-chet-se-nghe-dang-christ

@@ -1,1 +1,0 @@
-Năng Quyền Duy Nhất |03:12|6|bai-hat-ca-ngoi-chua.n.nang-quyen-duy-nhat

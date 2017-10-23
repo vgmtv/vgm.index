@@ -1,1 +1,0 @@
-Ê xơ tê 05|18:28|6|nhan-vat.e-xo-te.e-xo-te-05

@@ -1,1 +1,0 @@
-392 Gô gô tha|02:33|6|bai-hat-ca-ngoi-chua.thanh-ca-509.392-go-go-tha

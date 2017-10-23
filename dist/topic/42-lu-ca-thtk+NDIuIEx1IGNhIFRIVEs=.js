@@ -1,0 +1,1 @@
+42. Lu ca THTK|30|42-lu-ca-thtk|false|6|true

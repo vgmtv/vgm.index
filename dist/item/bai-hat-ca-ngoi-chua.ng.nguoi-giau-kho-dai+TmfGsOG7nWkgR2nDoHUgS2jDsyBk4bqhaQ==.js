@@ -1,1 +1,0 @@
-Người Giàu Khó dại|03:49|6|bai-hat-ca-ngoi-chua.ng.nguoi-giau-kho-dai

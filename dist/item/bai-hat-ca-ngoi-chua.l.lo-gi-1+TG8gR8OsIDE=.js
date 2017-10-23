@@ -1,1 +1,0 @@
-Lo Gì 1|04:25|6|bai-hat-ca-ngoi-chua.l.lo-gi-1

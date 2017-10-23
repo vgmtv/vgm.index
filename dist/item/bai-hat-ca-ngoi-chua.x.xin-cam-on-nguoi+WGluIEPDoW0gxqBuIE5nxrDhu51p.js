@@ -1,1 +1,0 @@
-Xin Cám Ơn Người|04:45|6|bai-hat-ca-ngoi-chua.x.xin-cam-on-nguoi

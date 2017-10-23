@@ -1,1 +1,0 @@
-Ngài Là Chúa Của Con|03:46|6|bai-hat-ca-ngoi-chua.ng.ngai-la-chua-cua-con

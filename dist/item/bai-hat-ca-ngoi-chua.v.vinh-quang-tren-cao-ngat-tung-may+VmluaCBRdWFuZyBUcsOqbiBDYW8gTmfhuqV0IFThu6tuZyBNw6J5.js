@@ -1,1 +1,0 @@
-Vinh Quang Trên Cao Ngất Từng Mây|03:59|6|bai-hat-ca-ngoi-chua.v.vinh-quang-tren-cao-ngat-tung-may

@@ -1,1 +1,0 @@
-Lời Kinh Cuộc Đời|06:52|6|bai-hat-ca-ngoi-chua.l.loi-kinh-cuoc-doi

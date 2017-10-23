@@ -1,1 +1,0 @@
-13 20100403 sa s|28:38|6|phat-thanh-nguon-song.nam-2010.thang-04.phat-thanh-nguon-song-100328-100403.13-20100403-sa-s

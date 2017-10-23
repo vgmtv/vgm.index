@@ -1,1 +1,0 @@
-Chúng Ta Là Dân Giao Ước Của Chúa|03:38|6|bai-hat-ca-ngoi-chua.ch.chung-ta-la-dan-giao-uoc-cua-chua

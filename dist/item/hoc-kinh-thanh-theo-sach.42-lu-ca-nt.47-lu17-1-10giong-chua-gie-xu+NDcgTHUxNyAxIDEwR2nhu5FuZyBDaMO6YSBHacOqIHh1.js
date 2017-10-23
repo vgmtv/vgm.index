@@ -1,1 +1,0 @@
-47 Lu17 1 10Giống Chúa Giê xu|38:40|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.47-lu17-1-10giong-chua-gie-xu

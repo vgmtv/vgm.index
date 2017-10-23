@@ -1,1 +1,0 @@
-Ngài Cứu Tôi 2|04:26|6|bai-hat-ca-ngoi-chua.ng.ngai-cuu-toi-2

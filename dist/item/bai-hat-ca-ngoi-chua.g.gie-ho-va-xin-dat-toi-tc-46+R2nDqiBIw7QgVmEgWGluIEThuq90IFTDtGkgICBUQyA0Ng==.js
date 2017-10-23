@@ -1,1 +1,0 @@
-Giê Hô Va Xin Dắt Tôi   TC 46|02:20|6|bai-hat-ca-ngoi-chua.g.gie-ho-va-xin-dat-toi-tc-46

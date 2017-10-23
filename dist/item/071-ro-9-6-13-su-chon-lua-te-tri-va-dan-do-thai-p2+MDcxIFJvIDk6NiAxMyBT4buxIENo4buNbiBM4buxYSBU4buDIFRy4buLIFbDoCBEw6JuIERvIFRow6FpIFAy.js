@@ -1,0 +1,1 @@
+071 Ro 9:6 13 Sự Chọn Lựa Tể Trị Và Dân Do Thái P2|55:03|0|071-ro-9-6-13-su-chon-lua-te-tri-va-dan-do-thai-p2

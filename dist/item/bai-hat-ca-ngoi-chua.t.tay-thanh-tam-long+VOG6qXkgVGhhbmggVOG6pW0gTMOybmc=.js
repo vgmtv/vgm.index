@@ -1,1 +1,0 @@
-Tẩy Thanh Tấm Lòng|04:18|6|bai-hat-ca-ngoi-chua.t.tay-thanh-tam-long

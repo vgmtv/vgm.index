@@ -1,1 +1,0 @@
-Điều Tôi Thấu Hiểu 1|04:16|6|bai-hat-ca-ngoi-chua.d.dieu-toi-thau-hieu-1

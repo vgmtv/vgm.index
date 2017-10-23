@@ -1,1 +1,0 @@
-40 Sáng Thế Ký38|30:36|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.40-sang-the-ky38

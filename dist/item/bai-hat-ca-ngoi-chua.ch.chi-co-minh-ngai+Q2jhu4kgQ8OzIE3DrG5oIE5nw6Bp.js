@@ -1,1 +1,0 @@
-Chỉ Có Mình Ngài|05:10|6|bai-hat-ca-ngoi-chua.ch.chi-co-minh-ngai

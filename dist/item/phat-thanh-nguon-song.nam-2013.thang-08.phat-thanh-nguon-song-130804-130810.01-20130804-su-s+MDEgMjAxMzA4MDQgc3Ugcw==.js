@@ -1,1 +1,0 @@
-01 20130804 su s|30:20|6|phat-thanh-nguon-song.nam-2013.thang-08.phat-thanh-nguon-song-130804-130810.01-20130804-su-s

@@ -1,1 +1,0 @@
-Bay cao|05:08|6|bai-hat-ca-ngoi-chua.b.bay-cao

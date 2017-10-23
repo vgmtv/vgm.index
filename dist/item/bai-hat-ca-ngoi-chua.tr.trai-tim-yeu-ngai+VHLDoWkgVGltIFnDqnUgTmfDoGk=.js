@@ -1,1 +1,0 @@
-Trái Tim Yêu Ngài|03:33|6|bai-hat-ca-ngoi-chua.tr.trai-tim-yeu-ngai

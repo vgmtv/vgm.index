@@ -1,1 +1,0 @@
-Thiên Chúa Thành Người|05:20|6|bai-hat-ca-ngoi-chua.th.thien-chua-thanh-nguoi

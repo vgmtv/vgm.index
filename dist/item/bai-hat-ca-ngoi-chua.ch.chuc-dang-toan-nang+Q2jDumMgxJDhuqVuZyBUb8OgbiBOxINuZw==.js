@@ -1,1 +1,0 @@
-Chúc Đấng Toàn Năng|04:13|6|bai-hat-ca-ngoi-chua.ch.chuc-dang-toan-nang

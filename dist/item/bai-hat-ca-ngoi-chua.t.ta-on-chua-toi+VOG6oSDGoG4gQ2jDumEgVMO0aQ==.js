@@ -1,1 +1,0 @@
-Tạ Ơn Chúa Tôi|03:52|6|bai-hat-ca-ngoi-chua.t.ta-on-chua-toi

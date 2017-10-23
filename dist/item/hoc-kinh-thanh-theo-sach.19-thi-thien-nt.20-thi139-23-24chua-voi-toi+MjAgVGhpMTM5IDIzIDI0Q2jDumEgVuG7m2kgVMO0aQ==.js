@@ -1,1 +1,0 @@
-20 Thi139 23 24Chúa Với Tôi|27:13|6|hoc-kinh-thanh-theo-sach.19-thi-thien-nt.20-thi139-23-24chua-voi-toi

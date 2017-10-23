@@ -1,1 +1,0 @@
-Tạ Ơn Đấng Tạo Hóa|04:13|6|bai-hat-ca-ngoi-chua.t.ta-on-dang-tao-hoa

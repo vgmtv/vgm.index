@@ -1,1 +1,0 @@
-28 Xa11 0114 Sự Khước Từ Người Chăn Thật P2|31:43|12|hoc-kinh-thanh-theo-sach.38-xa-cha-ri-jm.28-xa11-0114-su-khuoc-tu-nguoi-chan-that-p2

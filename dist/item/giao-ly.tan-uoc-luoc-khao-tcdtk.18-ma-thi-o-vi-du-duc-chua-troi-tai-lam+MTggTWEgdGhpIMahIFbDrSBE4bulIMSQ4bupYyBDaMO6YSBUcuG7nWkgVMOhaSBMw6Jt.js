@@ -1,1 +1,0 @@
-18 Ma thi ơ Ví Dụ Đức Chúa Trời Tái Lâm|31:47|12|giao-ly.tan-uoc-luoc-khao-tcdtk.18-ma-thi-o-vi-du-duc-chua-troi-tai-lam

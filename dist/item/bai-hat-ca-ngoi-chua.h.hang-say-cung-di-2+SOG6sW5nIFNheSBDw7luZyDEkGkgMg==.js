@@ -1,1 +1,0 @@
-Hằng Say Cùng Đi 2|03:30|6|bai-hat-ca-ngoi-chua.h.hang-say-cung-di-2

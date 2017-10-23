@@ -1,1 +1,0 @@
-Ghi Khắc Ơn Ngài|04:09|6|bai-hat-ca-ngoi-chua.g.ghi-khac-on-ngai

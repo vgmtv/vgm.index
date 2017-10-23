@@ -1,1 +1,0 @@
-Ta Vẫn Chờ|05:00|6|bai-hat-ca-ngoi-chua.t.ta-van-cho

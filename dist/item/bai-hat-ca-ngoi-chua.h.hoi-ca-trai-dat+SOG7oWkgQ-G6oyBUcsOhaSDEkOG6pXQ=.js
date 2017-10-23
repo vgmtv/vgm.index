@@ -1,1 +1,0 @@
-Hỡi Cả Trái Đất|04:36|6|bai-hat-ca-ngoi-chua.h.hoi-ca-trai-dat

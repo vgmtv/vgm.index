@@ -1,1 +1,0 @@
-10 160602 th t|29:15|0|phat-thanh-nguon-song.nam-2016.thang-06.phat-thanh-nguon-song-160601-160604.10-160602-th-t

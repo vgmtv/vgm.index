@@ -1,1 +1,0 @@
-12 HTT Mat 18 15 20 Kỷ Luật Trong Hội Thánh Tôi 03 Thẩm Quyền Hội Thánh|25:36|14|hoc-theo-chu-de.hoi-thanh-va-toi.12-htt-mat-18-15-20-ky-luat-trong-hoi-thanh-toi-03-tham-quyen-hoi-thanh

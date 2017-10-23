@@ -1,1 +1,0 @@
-Không Chỗ Cho Ngài|05:12|6|bai-hat-ca-ngoi-chua.k.khong-cho-cho-ngai

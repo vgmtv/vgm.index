@@ -1,1 +1,0 @@
-Chú Bé Gõ Trống 2|04:15|6|bai-hat-ca-ngoi-chua.ch.chu-be-go-trong-2

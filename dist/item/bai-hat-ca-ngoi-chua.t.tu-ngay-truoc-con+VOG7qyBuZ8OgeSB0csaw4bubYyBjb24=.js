@@ -1,1 +1,0 @@
-Từ ngày trước con|04:46|0|bai-hat-ca-ngoi-chua.t.tu-ngay-truoc-con

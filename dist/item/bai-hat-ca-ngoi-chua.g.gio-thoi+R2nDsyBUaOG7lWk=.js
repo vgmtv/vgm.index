@@ -1,1 +1,0 @@
-Gió Thổi|03:45|6|bai-hat-ca-ngoi-chua.g.gio-thoi

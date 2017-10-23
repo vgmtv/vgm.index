@@ -1,1 +1,0 @@
-Chúa Tôi 1|05:02|6|bai-hat-ca-ngoi-chua.ch.chua-toi-1

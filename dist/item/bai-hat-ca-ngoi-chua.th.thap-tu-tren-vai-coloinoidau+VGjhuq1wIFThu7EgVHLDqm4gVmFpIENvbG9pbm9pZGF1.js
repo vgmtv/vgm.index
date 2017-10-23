@@ -1,1 +1,0 @@
-Thập Tự Trên Vai Coloinoidau|04:43|6|bai-hat-ca-ngoi-chua.th.thap-tu-tren-vai-coloinoidau

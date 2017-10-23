@@ -1,1 +1,0 @@
-Xin Kéo Tôi Lại Gần Hơn 2 Chuong|03:42|6|bai-hat-ca-ngoi-chua.x.xin-keo-toi-lai-gan-hon-2-chuong

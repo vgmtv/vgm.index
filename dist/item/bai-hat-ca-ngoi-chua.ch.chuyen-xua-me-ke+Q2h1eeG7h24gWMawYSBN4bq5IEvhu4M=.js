@@ -1,1 +1,0 @@
-Chuyện Xưa Mẹ Kể|05:44|6|bai-hat-ca-ngoi-chua.ch.chuyen-xua-me-ke

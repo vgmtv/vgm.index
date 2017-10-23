@@ -1,1 +1,0 @@
-Làm Con Vua Thánh 2|02:47|6|bai-hat-ca-ngoi-chua.l.lam-con-vua-thanh-2

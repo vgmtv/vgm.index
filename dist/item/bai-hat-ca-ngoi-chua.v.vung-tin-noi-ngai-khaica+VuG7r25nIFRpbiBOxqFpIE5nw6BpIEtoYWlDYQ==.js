@@ -1,1 +1,0 @@
-Vững Tin Nơi Ngài KhaiCa|04:28|6|bai-hat-ca-ngoi-chua.v.vung-tin-noi-ngai-khaica

@@ -1,1 +1,0 @@
-Kính Tôn Vua Hiển Vinh Thay|04:20|6|bai-hat-ca-ngoi-chua.k.kinh-ton-vua-hien-vinh-thay

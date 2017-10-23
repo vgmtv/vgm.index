@@ -1,1 +1,0 @@
-Vì Sao Tôi Phải Tin Ngài|03:50|6|bai-hat-ca-ngoi-chua.v.vi-sao-toi-phai-tin-ngai

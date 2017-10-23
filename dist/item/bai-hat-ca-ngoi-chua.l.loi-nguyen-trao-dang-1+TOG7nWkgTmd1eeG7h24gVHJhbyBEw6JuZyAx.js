@@ -1,1 +1,0 @@
-Lời Nguyện Trao Dâng 1|04:50|6|bai-hat-ca-ngoi-chua.l.loi-nguyen-trao-dang-1

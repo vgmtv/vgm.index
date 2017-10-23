@@ -1,1 +1,0 @@
-Giê xu Quang Lâm|03:46|6|bai-hat-ca-ngoi-chua.g.gie-xu-quang-lam

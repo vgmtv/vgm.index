@@ -1,1 +1,0 @@
-Xin tri ân|05:02|0|bai-hat-ca-ngoi-chua.x.xin-tri-an

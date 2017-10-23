@@ -1,1 +1,0 @@
-Lúa Chín Đầy Đồng|05:07|6|bai-hat-ca-ngoi-chua.l.lua-chin-day-dong

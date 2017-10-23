@@ -1,1 +1,0 @@
-12 20111125 fr t|29:21|6|phat-thanh-nguon-song.nam-2011.thang-11.phat-thanh-nguon-song-111120-111126.12-20111125-fr-t

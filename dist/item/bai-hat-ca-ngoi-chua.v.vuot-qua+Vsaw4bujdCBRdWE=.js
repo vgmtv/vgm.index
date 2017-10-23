@@ -1,1 +1,0 @@
-Vượt Qua|04:11|6|bai-hat-ca-ngoi-chua.v.vuot-qua

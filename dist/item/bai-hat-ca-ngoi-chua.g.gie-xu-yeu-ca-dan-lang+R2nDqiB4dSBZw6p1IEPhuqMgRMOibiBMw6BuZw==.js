@@ -1,1 +1,0 @@
-Giê xu Yêu Cả Dân Làng|02:52|6|bai-hat-ca-ngoi-chua.g.gie-xu-yeu-ca-dan-lang

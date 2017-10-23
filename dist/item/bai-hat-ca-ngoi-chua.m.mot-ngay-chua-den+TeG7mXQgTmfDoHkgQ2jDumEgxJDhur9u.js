@@ -1,1 +1,0 @@
-Một Ngày Chúa Đến|05:23|6|bai-hat-ca-ngoi-chua.m.mot-ngay-chua-den

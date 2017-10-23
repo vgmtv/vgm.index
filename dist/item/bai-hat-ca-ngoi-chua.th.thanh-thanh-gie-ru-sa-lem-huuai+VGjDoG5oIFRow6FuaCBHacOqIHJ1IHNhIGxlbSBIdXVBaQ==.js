@@ -1,1 +1,0 @@
-Thành Thánh Giê ru sa lem HuuAi|04:45|6|bai-hat-ca-ngoi-chua.th.thanh-thanh-gie-ru-sa-lem-huuai

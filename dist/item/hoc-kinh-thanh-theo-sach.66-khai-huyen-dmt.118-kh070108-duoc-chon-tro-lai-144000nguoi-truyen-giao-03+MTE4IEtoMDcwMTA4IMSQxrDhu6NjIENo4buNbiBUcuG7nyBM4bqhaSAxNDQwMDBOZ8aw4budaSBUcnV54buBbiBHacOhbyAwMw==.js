@@ -1,1 +1,0 @@
-118 Kh070108 Được Chọn Trở Lại 144000Người Truyền Giáo 03|55:30|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.118-kh070108-duoc-chon-tro-lai-144000nguoi-truyen-giao-03

@@ -1,1 +1,0 @@
-08 Lu041444 Chúa Bị Khước Từ...|25:25|6|hoc-kinh-thanh-theo-sach.42-lu-ca-thtk.08-lu041444-chua-bi-khuoc-tu

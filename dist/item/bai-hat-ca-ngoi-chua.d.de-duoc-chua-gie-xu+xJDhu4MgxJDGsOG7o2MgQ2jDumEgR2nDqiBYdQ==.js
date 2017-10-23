@@ -1,1 +1,0 @@
-Để Được Chúa Giê Xu|04:46|6|bai-hat-ca-ngoi-chua.d.de-duoc-chua-gie-xu

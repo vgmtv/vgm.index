@@ -1,1 +1,0 @@
-13 160702 Sa s|29:05|0|phat-thanh-nguon-song.nam-2016.thang-07.phat-thanh-nguon-song-160701-160702.13-160702-sa-s

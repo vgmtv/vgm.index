@@ -1,1 +1,0 @@
-Bên Chân Thập Tự|03:47|6|bai-hat-ca-ngoi-chua.b.ben-chan-thap-tu

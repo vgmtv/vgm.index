@@ -1,1 +1,0 @@
-Ca vang lên 2 Quoc Viet|04:34|0|bai-hat-ca-ngoi-chua.c.ca-vang-len-2-quoc-viet

@@ -1,1 +1,0 @@
-Cần Chi|02:13|6|bai-hat-ca-ngoi-chua.c.can-chi

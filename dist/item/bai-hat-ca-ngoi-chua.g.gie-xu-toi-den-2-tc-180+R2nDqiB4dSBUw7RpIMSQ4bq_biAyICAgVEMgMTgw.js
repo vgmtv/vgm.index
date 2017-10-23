@@ -1,1 +1,0 @@
-Giê xu Tôi Đến 2   TC 180|06:00|6|bai-hat-ca-ngoi-chua.g.gie-xu-toi-den-2-tc-180

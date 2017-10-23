@@ -1,1 +1,0 @@
-Chúa Đã Đến 1|03:02|6|bai-hat-ca-ngoi-chua.ch.chua-da-den-1

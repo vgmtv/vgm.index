@@ -1,1 +1,0 @@
-Trước Khi Rạng Đông|07:11|6|bai-hat-ca-ngoi-chua.tr.truoc-khi-rang-dong

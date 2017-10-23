@@ -1,1 +1,0 @@
-Chiên Của Đồng Cỏ Ngài|03:29|6|bai-hat-ca-ngoi-chua.ch.chien-cua-dong-co-ngai

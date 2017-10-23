@@ -1,1 +1,0 @@
-Hãy Mở Cửa Lòng|04:36|6|bai-hat-ca-ngoi-chua.h.hay-mo-cua-long

@@ -1,1 +1,0 @@
-23 Thi Thiên36 37|31:10|6|hoc-kinh-thanh-theo-sach.19-thi-thien-thtk.23-thi-thien36-37

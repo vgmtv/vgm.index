@@ -1,1 +1,0 @@
-04 Các Vua I, II  Sử Ký I, II Ê xơ ra Nê hê mi|09:53|12|giao-ly.cuu-uoc-luoc-khao-hxp.04-cac-vua-i-ii-su-ky-i-ii-e-xo-ra-ne-he-mi

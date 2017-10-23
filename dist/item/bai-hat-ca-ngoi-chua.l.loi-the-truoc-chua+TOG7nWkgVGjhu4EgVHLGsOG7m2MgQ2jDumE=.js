@@ -1,1 +1,0 @@
-Lời Thề Trước Chúa|10:04|6|bai-hat-ca-ngoi-chua.l.loi-the-truoc-chua

@@ -1,1 +1,0 @@
-Không Bởi Quyền Thế|01:47|6|bai-hat-ca-ngoi-chua.k.khong-boi-quyen-the

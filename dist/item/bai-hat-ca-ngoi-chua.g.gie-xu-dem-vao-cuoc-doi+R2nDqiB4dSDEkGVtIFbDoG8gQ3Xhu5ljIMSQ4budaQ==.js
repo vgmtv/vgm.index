@@ -1,1 +1,0 @@
-Giê xu Đem Vào Cuộc Đời|01:48|6|bai-hat-ca-ngoi-chua.g.gie-xu-dem-vao-cuoc-doi

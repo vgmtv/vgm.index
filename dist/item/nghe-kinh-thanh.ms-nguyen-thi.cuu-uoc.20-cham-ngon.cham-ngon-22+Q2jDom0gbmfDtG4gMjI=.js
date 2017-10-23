@@ -1,1 +1,0 @@
-Châm ngôn 22|03:42|31|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.20-cham-ngon.cham-ngon-22

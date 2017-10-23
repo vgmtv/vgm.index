@@ -1,1 +1,0 @@
-Trao Cho Chúa|03:10|6|bai-hat-ca-ngoi-chua.tr.trao-cho-chua

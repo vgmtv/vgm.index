@@ -1,0 +1,1 @@
+019 Ro 2:17 29 Nền Tảng Sai Trật P2|55:27|0|019-ro-2-17-29-nen-tang-sai-trat-p2

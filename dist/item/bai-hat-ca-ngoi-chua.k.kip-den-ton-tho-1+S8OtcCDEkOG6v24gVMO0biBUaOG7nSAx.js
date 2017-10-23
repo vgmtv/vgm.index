@@ -1,1 +1,0 @@
-Kíp Đến Tôn Thờ 1|02:22|6|bai-hat-ca-ngoi-chua.k.kip-den-ton-tho-1

@@ -1,1 +1,0 @@
-Tạo Nên Trong Con|04:31|0|bai-hat-ca-ngoi-chua.t.tao-nen-trong-con

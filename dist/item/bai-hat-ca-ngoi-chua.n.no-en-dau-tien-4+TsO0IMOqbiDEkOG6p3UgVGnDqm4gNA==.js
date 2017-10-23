@@ -1,1 +1,0 @@
-Nô ên Đầu Tiên 4|04:01|6|bai-hat-ca-ngoi-chua.n.no-en-dau-tien-4

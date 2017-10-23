@@ -1,0 +1,1 @@
+30 Sa17 1 8Đức Chúa Trời Hứa Cùng Áp ra ham|17:48|18|30-sa17-1-8duc-chua-troi-hua-cung-ap-ra-ham

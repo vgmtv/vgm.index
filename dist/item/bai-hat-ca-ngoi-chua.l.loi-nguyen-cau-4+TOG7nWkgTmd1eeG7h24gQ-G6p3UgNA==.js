@@ -1,1 +1,0 @@
-Lời Nguyện Cầu 4|03:02|6|bai-hat-ca-ngoi-chua.l.loi-nguyen-cau-4

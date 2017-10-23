@@ -1,1 +1,0 @@
-13 161119 Sa s|29:30|0|phat-thanh-nguon-song.nam-2016.thang-11.phat-thanh-nguon-song-161113-161119.13-161119-sa-s

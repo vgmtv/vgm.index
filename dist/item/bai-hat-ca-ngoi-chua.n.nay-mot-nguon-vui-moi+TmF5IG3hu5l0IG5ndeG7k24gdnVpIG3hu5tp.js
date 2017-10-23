@@ -1,1 +1,0 @@
-Nay một nguồn vui mới|05:02|0|bai-hat-ca-ngoi-chua.n.nay-mot-nguon-vui-moi

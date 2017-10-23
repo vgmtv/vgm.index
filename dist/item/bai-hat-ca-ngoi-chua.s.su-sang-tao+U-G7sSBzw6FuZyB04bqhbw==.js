@@ -1,1 +1,0 @@
-Sự sáng tạo|04:37|0|bai-hat-ca-ngoi-chua.s.su-sang-tao

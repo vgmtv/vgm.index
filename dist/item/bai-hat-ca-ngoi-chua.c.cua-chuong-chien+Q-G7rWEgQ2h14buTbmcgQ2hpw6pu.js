@@ -1,1 +1,0 @@
-Cửa Chuồng Chiên|04:16|6|bai-hat-ca-ngoi-chua.c.cua-chuong-chien

@@ -1,1 +1,0 @@
-Bước Chân Con|04:10|6|bai-hat-ca-ngoi-chua.b.buoc-chan-con

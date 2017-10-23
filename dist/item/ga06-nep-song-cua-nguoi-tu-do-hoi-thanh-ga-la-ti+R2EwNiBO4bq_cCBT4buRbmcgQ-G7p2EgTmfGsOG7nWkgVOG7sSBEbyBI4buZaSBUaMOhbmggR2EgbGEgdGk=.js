@@ -1,0 +1,1 @@
+Ga06 Nếp Sống Của Người Tự Do Hội Thánh Ga la ti|25:51|4|ga06-nep-song-cua-nguoi-tu-do-hoi-thanh-ga-la-ti

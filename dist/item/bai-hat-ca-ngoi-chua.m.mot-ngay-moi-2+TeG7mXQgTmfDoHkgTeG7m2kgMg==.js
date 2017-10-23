@@ -1,1 +1,0 @@
-Một Ngày Mới 2|03:06|6|bai-hat-ca-ngoi-chua.m.mot-ngay-moi-2

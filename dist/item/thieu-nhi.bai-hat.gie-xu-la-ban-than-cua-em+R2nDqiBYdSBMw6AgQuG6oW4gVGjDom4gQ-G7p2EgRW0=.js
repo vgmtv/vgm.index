@@ -1,1 +1,0 @@
-Giê Xu Là Bạn Thân Của Em|01:56|16|thieu-nhi.bai-hat.gie-xu-la-ban-than-cua-em

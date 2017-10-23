@@ -1,1 +1,0 @@
-Người Khôn Và Người Dại|02:00|6|bai-hat-ca-ngoi-chua.ng.nguoi-khon-va-nguoi-dai

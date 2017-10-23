@@ -1,1 +1,0 @@
-08 Ô sê Giô ên A mốt Áp đia Giô na Mi chê Na hum Ha ba cúc Sô phô ni A ghê Xa cha ri Ma la chi|14:26|12|giao-ly.cuu-uoc-luoc-khao-hxp.08-o-se-gio-en-a-mot-ap-dia-gio-na-mi-che-na-hum-ha-ba-cuc-so-pho-ni-a-ghe-xa-cha-ri-ma-la-chi

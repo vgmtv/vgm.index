@@ -1,1 +1,0 @@
-Cha Tôi|03:25|6|bai-hat-ca-ngoi-chua.ch.cha-toi

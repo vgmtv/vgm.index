@@ -1,1 +1,0 @@
-Đấng Cứu Chuộc Tôi 2|03:37|6|bai-hat-ca-ngoi-chua.d.dang-cuu-chuoc-toi-2

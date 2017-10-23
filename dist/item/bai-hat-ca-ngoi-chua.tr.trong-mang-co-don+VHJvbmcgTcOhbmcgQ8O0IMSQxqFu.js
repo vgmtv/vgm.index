@@ -1,1 +1,0 @@
-Trong Máng Cô Đơn|04:55|6|bai-hat-ca-ngoi-chua.tr.trong-mang-co-don

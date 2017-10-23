@@ -1,0 +1,1 @@
+119 Gi 14:7 14 Lời Hứa Đầy Năng Quyền|41:29|0|119-gi-14-7-14-loi-hua-day-nang-quyen

@@ -1,1 +1,0 @@
-30 ICo12 1 11Ân Tứ Thánh Linh|16:32|6|hoc-kinh-thanh-theo-sach.46-i-co-rinh-to-tcdtk.30-ico12-1-11an-tu-thanh-linh

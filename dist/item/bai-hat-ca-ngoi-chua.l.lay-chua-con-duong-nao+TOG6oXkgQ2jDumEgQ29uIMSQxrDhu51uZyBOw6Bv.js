@@ -1,1 +1,0 @@
-Lạy Chúa Con Đường Nào|05:05|6|bai-hat-ca-ngoi-chua.l.lay-chua-con-duong-nao

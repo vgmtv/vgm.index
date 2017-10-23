@@ -1,1 +1,0 @@
-Lạy Giê xu chúng con|04:20|0|bai-hat-ca-ngoi-chua.l.lay-gie-xu-chung-con

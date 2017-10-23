@@ -1,1 +1,0 @@
-Hỡi Đấng Chăn Hiền Lành|04:02|6|bai-hat-ca-ngoi-chua.h.hoi-dang-chan-hien-lanh

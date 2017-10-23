@@ -1,1 +1,0 @@
-Chung Niềm Tin 2|05:39|6|bai-hat-ca-ngoi-chua.ch.chung-niem-tin-2

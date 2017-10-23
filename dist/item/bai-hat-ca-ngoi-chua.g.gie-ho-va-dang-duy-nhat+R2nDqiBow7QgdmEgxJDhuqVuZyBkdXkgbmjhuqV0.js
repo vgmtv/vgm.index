@@ -1,1 +1,0 @@
-Giê hô va Đấng duy nhất|04:05|0|bai-hat-ca-ngoi-chua.g.gie-ho-va-dang-duy-nhat

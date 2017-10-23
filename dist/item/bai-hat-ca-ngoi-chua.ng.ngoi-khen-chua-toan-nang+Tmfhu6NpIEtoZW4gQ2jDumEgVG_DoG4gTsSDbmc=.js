@@ -1,1 +1,0 @@
-Ngợi Khen Chúa Toàn Năng|04:02|0|bai-hat-ca-ngoi-chua.ng.ngoi-khen-chua-toan-nang

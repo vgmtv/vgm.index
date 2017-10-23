@@ -1,1 +1,0 @@
-Nhìn Lên Thập Giá|04:11|6|bai-hat-ca-ngoi-chua.nh.nhin-len-thap-gia

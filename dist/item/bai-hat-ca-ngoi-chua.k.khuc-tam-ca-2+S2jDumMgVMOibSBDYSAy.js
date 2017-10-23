@@ -1,1 +1,0 @@
-Khúc Tâm Ca 2|05:01|6|bai-hat-ca-ngoi-chua.k.khuc-tam-ca-2

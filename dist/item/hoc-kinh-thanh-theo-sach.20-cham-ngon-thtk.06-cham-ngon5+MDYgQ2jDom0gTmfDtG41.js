@@ -1,1 +1,0 @@
-06 Châm Ngôn5|27:28|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.06-cham-ngon5

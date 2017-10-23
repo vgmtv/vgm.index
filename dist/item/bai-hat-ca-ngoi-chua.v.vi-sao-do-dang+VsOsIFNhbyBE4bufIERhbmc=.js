@@ -1,1 +1,0 @@
-Vì Sao Dở Dang|01:52|6|bai-hat-ca-ngoi-chua.v.vi-sao-do-dang

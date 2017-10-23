@@ -1,1 +1,0 @@
-Ngài Là Đấng Mê si 2|05:23|6|bai-hat-ca-ngoi-chua.ng.ngai-la-dang-me-si-2

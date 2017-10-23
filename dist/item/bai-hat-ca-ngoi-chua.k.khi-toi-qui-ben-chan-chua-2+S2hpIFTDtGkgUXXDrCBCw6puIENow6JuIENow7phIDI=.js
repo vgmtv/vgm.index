@@ -1,1 +1,0 @@
-Khi Tôi Quì Bên Chân Chúa 2|06:41|6|bai-hat-ca-ngoi-chua.k.khi-toi-qui-ben-chan-chua-2

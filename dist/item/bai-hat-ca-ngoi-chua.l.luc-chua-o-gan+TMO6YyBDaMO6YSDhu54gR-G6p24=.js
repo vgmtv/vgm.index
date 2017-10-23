@@ -1,1 +1,0 @@
-Lúc Chúa Ở Gần|03:03|6|bai-hat-ca-ngoi-chua.l.luc-chua-o-gan

@@ -1,1 +1,0 @@
-Nơi Cư Ngụ Chúa|03:51|6|bai-hat-ca-ngoi-chua.n.noi-cu-ngu-chua

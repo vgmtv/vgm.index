@@ -1,1 +1,0 @@
-Giê xu Con Xin Ngài Nghe Tiếng Nói|03:15|6|bai-hat-ca-ngoi-chua.g.gie-xu-con-xin-ngai-nghe-tieng-noi

@@ -1,1 +1,0 @@
-34 Lu12 1 12Nói Ra Hay Giữ Kín|45:03|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.34-lu12-1-12noi-ra-hay-giu-kin

@@ -1,1 +1,0 @@
-Lời Con Khẩn Xin|05:09|6|bai-hat-ca-ngoi-chua.l.loi-con-khan-xin

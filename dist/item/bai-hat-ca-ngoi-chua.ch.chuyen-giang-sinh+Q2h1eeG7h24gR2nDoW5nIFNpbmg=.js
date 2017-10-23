@@ -1,1 +1,0 @@
-Chuyện Giáng Sinh|03:53|6|bai-hat-ca-ngoi-chua.ch.chuyen-giang-sinh

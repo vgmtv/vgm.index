@@ -1,1 +1,0 @@
-Kìa, Thần Yên Ủi Giáng Lai   TC 135|04:44|6|bai-hat-ca-ngoi-chua.k.kia-than-yen-ui-giang-lai-tc-135

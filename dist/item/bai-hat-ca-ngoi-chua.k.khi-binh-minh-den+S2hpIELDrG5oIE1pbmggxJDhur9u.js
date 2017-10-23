@@ -1,1 +1,0 @@
-Khi Bình Minh Đến|04:47|6|bai-hat-ca-ngoi-chua.k.khi-binh-minh-den

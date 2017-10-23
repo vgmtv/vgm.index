@@ -1,0 +1,1 @@
+Áp Ra Ham|9|ap-ra-ham|false|6|true

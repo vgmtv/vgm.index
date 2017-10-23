@@ -1,1 +1,0 @@
-Cha ôi xin hãy lắng nghe LD|04:01|0|bai-hat-ca-ngoi-chua.ch.cha-oi-xin-hay-lang-nghe-ld

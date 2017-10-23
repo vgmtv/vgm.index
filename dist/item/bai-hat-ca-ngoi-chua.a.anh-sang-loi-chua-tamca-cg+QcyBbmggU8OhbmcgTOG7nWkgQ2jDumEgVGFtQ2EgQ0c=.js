@@ -1,1 +1,0 @@
-Ánh Sáng Lời Chúa TamCa CG|05:06|0|bai-hat-ca-ngoi-chua.a.anh-sang-loi-chua-tamca-cg

@@ -1,1 +1,0 @@
-Chúa Oai Quyền|04:48|6|bai-hat-ca-ngoi-chua.ch.chua-oai-quyen

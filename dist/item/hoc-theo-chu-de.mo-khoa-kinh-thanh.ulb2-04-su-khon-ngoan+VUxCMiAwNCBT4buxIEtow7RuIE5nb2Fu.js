@@ -1,1 +1,0 @@
-ULB2 04 Sự Khôn Ngoan|28:30|12|hoc-theo-chu-de.mo-khoa-kinh-thanh.ulb2-04-su-khon-ngoan

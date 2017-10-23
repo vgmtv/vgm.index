@@ -1,1 +1,0 @@
-Con Chỉ Muốn Nói Yêu Ngài|04:21|6|bai-hat-ca-ngoi-chua.c.con-chi-muon-noi-yeu-ngai

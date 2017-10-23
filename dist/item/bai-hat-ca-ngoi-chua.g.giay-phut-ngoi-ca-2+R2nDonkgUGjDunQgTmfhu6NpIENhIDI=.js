@@ -1,1 +1,0 @@
-Giây Phút Ngợi Ca 2|05:00|6|bai-hat-ca-ngoi-chua.g.giay-phut-ngoi-ca-2

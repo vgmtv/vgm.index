@@ -1,1 +1,0 @@
-231 Lu22 47 53Bội Phản Chúa|59:14|0|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.231-lu22-47-53boi-phan-chua

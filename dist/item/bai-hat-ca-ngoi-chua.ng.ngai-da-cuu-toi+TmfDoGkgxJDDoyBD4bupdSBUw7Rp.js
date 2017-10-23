@@ -1,1 +1,0 @@
-Ngài Đã Cứu Tôi|04:39|6|bai-hat-ca-ngoi-chua.ng.ngai-da-cuu-toi

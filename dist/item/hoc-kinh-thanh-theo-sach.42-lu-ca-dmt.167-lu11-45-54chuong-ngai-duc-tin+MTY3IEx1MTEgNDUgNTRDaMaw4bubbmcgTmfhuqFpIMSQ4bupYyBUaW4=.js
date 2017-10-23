@@ -1,1 +1,0 @@
-167 Lu11 45 54Chướng Ngại Đức Tin|51:24|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.167-lu11-45-54chuong-ngai-duc-tin

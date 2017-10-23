@@ -1,1 +1,0 @@
-Chúa Nhân Từ 2|04:15|6|bai-hat-ca-ngoi-chua.ch.chua-nhan-tu-2

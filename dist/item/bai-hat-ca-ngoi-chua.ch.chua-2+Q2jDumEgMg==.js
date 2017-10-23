@@ -1,1 +1,0 @@
-Chúa 2|05:09|6|bai-hat-ca-ngoi-chua.ch.chua-2

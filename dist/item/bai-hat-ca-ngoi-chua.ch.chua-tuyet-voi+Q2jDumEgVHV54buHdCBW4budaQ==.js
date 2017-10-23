@@ -1,1 +1,0 @@
-Chúa Tuyệt Vời|05:02|6|bai-hat-ca-ngoi-chua.ch.chua-tuyet-voi

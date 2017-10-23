@@ -1,0 +1,1 @@
+A bi ga in|7|a-bi-ga-in|false|6|true

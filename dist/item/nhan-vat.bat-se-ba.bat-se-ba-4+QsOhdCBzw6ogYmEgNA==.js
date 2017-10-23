@@ -1,1 +1,0 @@
-Bát sê ba 4|22:06|6|nhan-vat.bat-se-ba.bat-se-ba-4

@@ -1,1 +1,0 @@
-Chúa Biết Mọi Sự|04:54|6|bai-hat-ca-ngoi-chua.ch.chua-biet-moi-su

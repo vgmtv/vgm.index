@@ -1,1 +1,0 @@
-Không Ai Hiểu Tôi|05:38|0|bai-hat-ca-ngoi-chua.k.khong-ai-hieu-toi

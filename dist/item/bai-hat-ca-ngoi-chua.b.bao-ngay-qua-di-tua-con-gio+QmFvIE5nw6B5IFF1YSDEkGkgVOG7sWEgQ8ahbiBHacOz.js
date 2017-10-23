@@ -1,1 +1,0 @@
-Bao Ngày Qua Đi Tựa Cơn Gió|05:25|6|bai-hat-ca-ngoi-chua.b.bao-ngay-qua-di-tua-con-gio

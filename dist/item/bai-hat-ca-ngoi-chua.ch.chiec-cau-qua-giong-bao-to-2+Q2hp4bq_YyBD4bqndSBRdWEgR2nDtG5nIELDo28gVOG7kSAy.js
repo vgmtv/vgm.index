@@ -1,1 +1,0 @@
-Chiếc Cầu Qua Giông Bão Tố 2|04:16|6|bai-hat-ca-ngoi-chua.ch.chiec-cau-qua-giong-bao-to-2

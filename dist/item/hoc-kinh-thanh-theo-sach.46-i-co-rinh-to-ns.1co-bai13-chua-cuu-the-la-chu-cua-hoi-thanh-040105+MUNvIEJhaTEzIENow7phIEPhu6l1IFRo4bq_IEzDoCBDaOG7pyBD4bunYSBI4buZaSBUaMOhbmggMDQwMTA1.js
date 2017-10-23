@@ -1,1 +1,0 @@
-1Co Bai13 Chúa Cứu Thế Là Chủ Của Hội Thánh 040105|13:20|6|hoc-kinh-thanh-theo-sach.46-i-co-rinh-to-ns.1co-bai13-chua-cuu-the-la-chu-cua-hoi-thanh-040105

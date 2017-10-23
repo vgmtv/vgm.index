@@ -1,1 +1,0 @@
-04 Ga la ti 2 1 14|29:50|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-thtk.04-ga-la-ti-2-1-14

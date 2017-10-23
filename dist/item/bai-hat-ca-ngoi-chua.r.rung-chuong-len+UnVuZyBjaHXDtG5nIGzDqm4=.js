@@ -1,1 +1,0 @@
-Rung chuông lên|03:24|0|bai-hat-ca-ngoi-chua.r.rung-chuong-len

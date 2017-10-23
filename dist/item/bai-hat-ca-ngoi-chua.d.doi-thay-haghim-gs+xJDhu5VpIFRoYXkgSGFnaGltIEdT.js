@@ -1,1 +1,0 @@
-Đổi Thay Haghim GS|04:59|0|bai-hat-ca-ngoi-chua.d.doi-thay-haghim-gs

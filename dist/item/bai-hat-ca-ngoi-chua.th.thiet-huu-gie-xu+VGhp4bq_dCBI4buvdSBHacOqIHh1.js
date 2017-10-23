@@ -1,1 +1,0 @@
-Thiết Hữu Giê xu|02:34|6|bai-hat-ca-ngoi-chua.th.thiet-huu-gie-xu

@@ -1,1 +1,0 @@
-Trong Cơn Bão Tố|04:11|6|bai-hat-ca-ngoi-chua.tr.trong-con-bao-to

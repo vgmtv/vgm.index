@@ -1,1 +1,0 @@
-13 140201 Sa s|28:54|0|phat-thanh-nguon-song.nam-2014.thang-02.phat-thanh-nguon-song-140126-140201.13-140201-sa-s

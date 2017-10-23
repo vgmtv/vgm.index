@@ -1,1 +1,0 @@
-02 Yếu Tố Đức Chúa Trời Trong Kinh Thánh|50:27|8|huan-luyen.chuc-vu-giang-day-ms-thai-phuoc-truong.02-yeu-to-duc-chua-troi-trong-kinh-thanh

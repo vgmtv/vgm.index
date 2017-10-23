@@ -1,1 +1,0 @@
-Tình Yêu Trong Lời Ngài|05:09|6|bai-hat-ca-ngoi-chua.t.tinh-yeu-trong-loi-ngai

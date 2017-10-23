@@ -1,1 +1,0 @@
-093 Kh040111 Chúa Ngự Trên Ngài 02|29:11|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.093-kh040111-chua-ngu-tren-ngai-02

@@ -1,1 +1,0 @@
-Giê xu Không Hề Thay Đổi|04:56|6|bai-hat-ca-ngoi-chua.g.gie-xu-khong-he-thay-doi

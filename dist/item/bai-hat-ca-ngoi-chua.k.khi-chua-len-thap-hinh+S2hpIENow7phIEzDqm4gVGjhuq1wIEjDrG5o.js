@@ -1,1 +1,0 @@
-Khi Chúa Lên Thập Hình|04:57|6|bai-hat-ca-ngoi-chua.k.khi-chua-len-thap-hinh

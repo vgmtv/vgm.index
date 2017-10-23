@@ -1,1 +1,0 @@
-33 I II Sa Mu Ên Nước Của Đức Chúa Trời Tái Sanh|34:28|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.33-i-ii-sa-mu-en-nuoc-cua-duc-chua-troi-tai-sanh

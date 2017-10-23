@@ -1,1 +1,0 @@
-Vì Chúa Thôi|01:48|16|thieu-nhi.bai-hat.vi-chua-thoi

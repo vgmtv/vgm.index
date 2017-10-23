@@ -1,1 +1,0 @@
-Thương Tôi|06:23|6|bai-hat-ca-ngoi-chua.th.thuong-toi

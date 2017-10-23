@@ -1,0 +1,1 @@
+082 Gi 8:48 59 Chúa Giê xu Chọc Giận Kẻ Thù|26:43|12|082-gi-8-48-59-chua-gie-xu-choc-gian-ke-thu

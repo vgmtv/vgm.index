@@ -1,1 +1,0 @@
-Nếu Không Có Chúa|04:56|6|bai-hat-ca-ngoi-chua.n.neu-khong-co-chua

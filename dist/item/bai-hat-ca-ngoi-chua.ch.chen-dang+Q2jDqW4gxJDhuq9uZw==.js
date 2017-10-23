@@ -1,1 +1,0 @@
-Chén Đắng|04:38|6|bai-hat-ca-ngoi-chua.ch.chen-dang

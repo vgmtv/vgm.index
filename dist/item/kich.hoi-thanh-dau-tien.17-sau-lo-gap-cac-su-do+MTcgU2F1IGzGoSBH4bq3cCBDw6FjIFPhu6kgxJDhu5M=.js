@@ -1,1 +1,0 @@
-17 Sau lơ Gặp Các Sứ Đồ|16:29|0|kich.hoi-thanh-dau-tien.17-sau-lo-gap-cac-su-do

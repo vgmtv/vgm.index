@@ -1,1 +1,0 @@
-171 Lu12 13 21Người Giàu Ngu Dại|51:37|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.171-lu12-13-21nguoi-giau-ngu-dai

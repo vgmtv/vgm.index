@@ -1,1 +1,0 @@
-Khi Cha Đổi Mới|04:50|6|bai-hat-ca-ngoi-chua.k.khi-cha-doi-moi

@@ -1,0 +1,1 @@
+Đê Bô Ra|2|de-bo-ra|false|6|true

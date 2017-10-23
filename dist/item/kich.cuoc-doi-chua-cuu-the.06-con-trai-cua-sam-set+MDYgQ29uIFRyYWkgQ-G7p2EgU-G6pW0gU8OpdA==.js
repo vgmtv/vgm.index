@@ -1,1 +1,0 @@
-06 Con Trai Của Sấm Sét|11:49|0|kich.cuoc-doi-chua-cuu-the.06-con-trai-cua-sam-set

@@ -1,1 +1,0 @@
-Tay Trong Tay|04:16|6|bai-hat-ca-ngoi-chua.t.tay-trong-tay

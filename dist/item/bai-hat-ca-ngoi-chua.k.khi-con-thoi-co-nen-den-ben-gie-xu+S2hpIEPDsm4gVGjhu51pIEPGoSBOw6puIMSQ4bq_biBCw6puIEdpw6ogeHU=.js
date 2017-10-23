@@ -1,1 +1,0 @@
-Khi Còn Thời Cơ Nên Đến Bên Giê xu|02:18|6|bai-hat-ca-ngoi-chua.k.khi-con-thoi-co-nen-den-ben-gie-xu

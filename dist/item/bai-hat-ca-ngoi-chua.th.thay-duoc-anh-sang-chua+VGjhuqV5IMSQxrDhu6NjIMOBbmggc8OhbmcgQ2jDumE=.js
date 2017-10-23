@@ -1,1 +1,0 @@
-Thấy Được Ánh sáng Chúa|04:21|6|bai-hat-ca-ngoi-chua.th.thay-duoc-anh-sang-chua

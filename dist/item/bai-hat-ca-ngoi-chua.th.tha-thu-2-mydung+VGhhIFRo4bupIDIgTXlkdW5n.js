@@ -1,1 +1,0 @@
-Tha Thứ 2 Mydung|04:22|6|bai-hat-ca-ngoi-chua.th.tha-thu-2-mydung

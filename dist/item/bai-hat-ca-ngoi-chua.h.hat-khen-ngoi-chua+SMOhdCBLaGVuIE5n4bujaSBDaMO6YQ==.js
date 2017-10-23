@@ -1,1 +1,0 @@
-Hát Khen Ngợi Chúa|02:48|6|bai-hat-ca-ngoi-chua.h.hat-khen-ngoi-chua

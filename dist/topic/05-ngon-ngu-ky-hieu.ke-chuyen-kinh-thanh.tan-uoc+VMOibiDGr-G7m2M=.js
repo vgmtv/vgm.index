@@ -1,1 +1,0 @@
-Tân Ước|3|05-ngon-ngu-ky-hieu.ke-chuyen-kinh-thanh.tan-uoc|true|0|true

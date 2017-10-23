@@ -1,1 +1,0 @@
-Nơi Chân Thập Hình|03:37|6|bai-hat-ca-ngoi-chua.n.noi-chan-thap-hinh

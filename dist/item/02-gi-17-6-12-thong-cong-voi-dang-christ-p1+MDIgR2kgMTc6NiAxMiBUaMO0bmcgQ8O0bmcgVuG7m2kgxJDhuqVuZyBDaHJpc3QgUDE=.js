@@ -1,0 +1,1 @@
+02 Gi 17:6 12 Thông Công Với Đấng Christ P1|01:07:20|0|02-gi-17-6-12-thong-cong-voi-dang-christ-p1

@@ -1,1 +1,0 @@
-338 Thành Giê ru sa lem|03:27|6|bai-hat-ca-ngoi-chua.thanh-ca-509.338-thanh-gie-ru-sa-lem

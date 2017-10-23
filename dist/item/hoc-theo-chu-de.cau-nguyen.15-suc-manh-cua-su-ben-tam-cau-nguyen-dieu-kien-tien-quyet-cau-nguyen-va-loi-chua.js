@@ -1,1 +1,0 @@
-15 Sức Mạnh Của Sự Bền Tâm Cầu Nguyện   Điều Kiện tiên Quyết   Cầu Nguyện Và Lời Chúa|38:41|0|hoc-theo-chu-de.cau-nguyen.15-suc-manh-cua-su-ben-tam-cau-nguyen-dieu-kien-tien-quyet-cau-nguyen-va-loi-chua

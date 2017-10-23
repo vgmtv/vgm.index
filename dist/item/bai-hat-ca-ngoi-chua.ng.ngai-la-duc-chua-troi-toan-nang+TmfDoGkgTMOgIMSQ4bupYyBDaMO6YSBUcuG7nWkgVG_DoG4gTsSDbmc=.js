@@ -1,1 +1,0 @@
-Ngài Là Đức Chúa Trời Toàn Năng|03:57|6|bai-hat-ca-ngoi-chua.ng.ngai-la-duc-chua-troi-toan-nang

@@ -1,1 +1,0 @@
-Hãy Chờ|03:48|6|bai-hat-ca-ngoi-chua.h.hay-cho

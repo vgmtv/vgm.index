@@ -1,1 +1,0 @@
-Nắm Chặt Lời Hứa|02:53|6|bai-hat-ca-ngoi-chua.n.nam-chat-loi-hua

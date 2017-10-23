@@ -1,1 +1,0 @@
-Tôi Là Ai 1 LinhNang|04:29|6|bai-hat-ca-ngoi-chua.t.toi-la-ai-1-linhnang

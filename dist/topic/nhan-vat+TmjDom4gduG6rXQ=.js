@@ -1,0 +1,1 @@
+Nhân vật|10|nhan-vat|false|0|true

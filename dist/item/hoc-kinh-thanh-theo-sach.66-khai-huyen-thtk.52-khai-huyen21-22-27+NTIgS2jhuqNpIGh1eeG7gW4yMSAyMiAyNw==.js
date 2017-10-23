@@ -1,1 +1,0 @@
-52 Khải huyền21 22 27|27:15|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.52-khai-huyen21-22-27

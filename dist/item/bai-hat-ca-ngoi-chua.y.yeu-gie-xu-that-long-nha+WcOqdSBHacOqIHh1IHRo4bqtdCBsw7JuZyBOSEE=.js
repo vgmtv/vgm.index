@@ -1,1 +1,0 @@
-Yêu Giê xu thật lòng NHA|03:08|0|bai-hat-ca-ngoi-chua.y.yeu-gie-xu-that-long-nha

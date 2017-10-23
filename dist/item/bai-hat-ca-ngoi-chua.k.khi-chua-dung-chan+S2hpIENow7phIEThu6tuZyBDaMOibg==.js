@@ -1,1 +1,0 @@
-Khi Chúa Dừng Chân|03:28|6|bai-hat-ca-ngoi-chua.k.khi-chua-dung-chan

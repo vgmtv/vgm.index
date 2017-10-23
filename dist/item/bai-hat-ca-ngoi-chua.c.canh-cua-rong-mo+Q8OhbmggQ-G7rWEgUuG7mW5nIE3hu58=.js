@@ -1,1 +1,0 @@
-Cánh Cửa Rộng Mở|04:46|6|bai-hat-ca-ngoi-chua.c.canh-cua-rong-mo

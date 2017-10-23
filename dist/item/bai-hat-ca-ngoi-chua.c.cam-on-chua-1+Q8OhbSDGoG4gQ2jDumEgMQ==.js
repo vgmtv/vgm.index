@@ -1,1 +1,0 @@
-Cám Ơn Chúa 1|05:18|6|bai-hat-ca-ngoi-chua.c.cam-on-chua-1

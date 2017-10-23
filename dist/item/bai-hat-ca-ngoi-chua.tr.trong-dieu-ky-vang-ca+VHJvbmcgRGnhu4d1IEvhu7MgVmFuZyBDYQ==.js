@@ -1,1 +1,0 @@
-Trong Diệu Kỳ Vang Ca|05:32|6|bai-hat-ca-ngoi-chua.tr.trong-dieu-ky-vang-ca

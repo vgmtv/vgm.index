@@ -1,1 +1,0 @@
-Tạ Ơn Bàn Tay Chúa|03:06|16|thieu-nhi.bai-hat.ta-on-ban-tay-chua

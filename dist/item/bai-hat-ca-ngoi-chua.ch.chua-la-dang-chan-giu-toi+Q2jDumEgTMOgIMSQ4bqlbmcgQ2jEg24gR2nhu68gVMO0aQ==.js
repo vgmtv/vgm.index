@@ -1,1 +1,0 @@
-Chúa Là Đấng Chăn Giữ Tôi|04:12|6|bai-hat-ca-ngoi-chua.ch.chua-la-dang-chan-giu-toi

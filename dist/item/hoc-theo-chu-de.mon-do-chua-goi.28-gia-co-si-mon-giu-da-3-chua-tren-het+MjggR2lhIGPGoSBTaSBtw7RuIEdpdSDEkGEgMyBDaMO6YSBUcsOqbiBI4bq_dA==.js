@@ -1,1 +1,0 @@
-28 Gia cơ Si môn Giu Đa 3 Chúa Trên Hết|27:14|6|hoc-theo-chu-de.mon-do-chua-goi.28-gia-co-si-mon-giu-da-3-chua-tren-het

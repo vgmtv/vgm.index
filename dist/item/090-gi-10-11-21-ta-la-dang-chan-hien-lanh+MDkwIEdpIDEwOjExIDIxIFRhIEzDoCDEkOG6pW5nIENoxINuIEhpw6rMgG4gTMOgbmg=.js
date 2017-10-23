@@ -1,0 +1,1 @@
+090 Gi 10:11 21 Ta Là Đấng Chăn Hiền Lành|49:45|12|090-gi-10-11-21-ta-la-dang-chan-hien-lanh

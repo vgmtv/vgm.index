@@ -1,1 +1,0 @@
-Lời Thiên Chúa|04:21|6|bai-hat-ca-ngoi-chua.l.loi-thien-chua

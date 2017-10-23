@@ -1,1 +1,0 @@
-Giê xu Con Tôn Thờ Ngài|01:35|6|bai-hat-ca-ngoi-chua.g.gie-xu-con-ton-tho-ngai

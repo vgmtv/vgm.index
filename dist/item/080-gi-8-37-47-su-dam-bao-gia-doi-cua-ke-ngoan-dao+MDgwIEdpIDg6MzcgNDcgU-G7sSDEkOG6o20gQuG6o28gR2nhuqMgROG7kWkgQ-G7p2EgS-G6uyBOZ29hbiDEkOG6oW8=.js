@@ -1,0 +1,1 @@
+080 Gi 8:37 47 Sự Đảm Bảo Giả Dối Của Kẻ Ngoan Đạo|28:50|12|080-gi-8-37-47-su-dam-bao-gia-doi-cua-ke-ngoan-dao

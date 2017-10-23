@@ -1,1 +1,0 @@
-Bàn Chân Người Truyền Đạo|04:31|6|bai-hat-ca-ngoi-chua.b.ban-chan-nguoi-truyen-dao

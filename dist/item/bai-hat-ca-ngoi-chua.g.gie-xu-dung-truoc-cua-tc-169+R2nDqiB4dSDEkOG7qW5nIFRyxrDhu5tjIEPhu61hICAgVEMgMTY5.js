@@ -1,1 +1,0 @@
-Giê xu Đứng Trước Cửa   TC 169|03:05|6|bai-hat-ca-ngoi-chua.g.gie-xu-dung-truoc-cua-tc-169

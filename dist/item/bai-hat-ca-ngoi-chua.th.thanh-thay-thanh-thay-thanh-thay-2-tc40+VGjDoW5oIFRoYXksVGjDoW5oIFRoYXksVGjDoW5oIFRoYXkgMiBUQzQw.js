@@ -1,1 +1,0 @@
-Thánh Thay,Thánh Thay,Thánh Thay 2 TC40|03:20|6|bai-hat-ca-ngoi-chua.th.thanh-thay-thanh-thay-thanh-thay-2-tc40

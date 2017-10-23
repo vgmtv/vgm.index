@@ -1,1 +1,0 @@
-Khi tình yêu con còn mơ Dalila|05:13|0|bai-hat-ca-ngoi-chua.k.khi-tinh-yeu-con-con-mo-dalila

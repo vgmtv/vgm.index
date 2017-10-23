@@ -1,1 +1,0 @@
-Nghe Tiếng Chúa Gọi Tên|04:28|6|bai-hat-ca-ngoi-chua.ng.nghe-tieng-chua-goi-ten

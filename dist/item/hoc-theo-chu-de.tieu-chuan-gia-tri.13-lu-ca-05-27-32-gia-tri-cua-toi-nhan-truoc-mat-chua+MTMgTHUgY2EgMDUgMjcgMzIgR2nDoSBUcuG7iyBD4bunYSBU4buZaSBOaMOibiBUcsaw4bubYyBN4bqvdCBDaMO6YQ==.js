@@ -1,1 +1,0 @@
-13 Lu ca 05 27 32 Giá Trị Của Tội Nhân Trước Mắt Chúa|27:16|14|hoc-theo-chu-de.tieu-chuan-gia-tri.13-lu-ca-05-27-32-gia-tri-cua-toi-nhan-truoc-mat-chua

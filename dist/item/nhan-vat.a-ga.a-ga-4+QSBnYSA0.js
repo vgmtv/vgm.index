@@ -1,1 +1,0 @@
-A ga 4|22:10|6|nhan-vat.a-ga.a-ga-4

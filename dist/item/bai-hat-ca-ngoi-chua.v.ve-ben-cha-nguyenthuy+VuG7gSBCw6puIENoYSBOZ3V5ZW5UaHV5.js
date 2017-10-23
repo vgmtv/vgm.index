@@ -1,1 +1,0 @@
-Về Bên Cha NguyenThuy|05:52|6|bai-hat-ca-ngoi-chua.v.ve-ben-cha-nguyenthuy

@@ -1,1 +1,0 @@
-12 140516 Fr t|28:49|0|phat-thanh-nguon-song.nam-2014.thang-05.phat-thanh-nguon-song-140511-140517.12-140516-fr-t

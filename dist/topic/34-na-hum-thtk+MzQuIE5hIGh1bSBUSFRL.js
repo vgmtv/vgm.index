@@ -1,0 +1,1 @@
+34. Na hum THTK|7|34-na-hum-thtk|false|6|true

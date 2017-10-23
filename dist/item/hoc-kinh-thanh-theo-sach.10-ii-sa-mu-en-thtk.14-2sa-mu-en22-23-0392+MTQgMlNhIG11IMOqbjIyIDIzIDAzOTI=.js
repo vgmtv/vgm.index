@@ -1,1 +1,0 @@
-14 2Sa mu ên22 23 0392|28:45|6|hoc-kinh-thanh-theo-sach.10-ii-sa-mu-en-thtk.14-2sa-mu-en22-23-0392

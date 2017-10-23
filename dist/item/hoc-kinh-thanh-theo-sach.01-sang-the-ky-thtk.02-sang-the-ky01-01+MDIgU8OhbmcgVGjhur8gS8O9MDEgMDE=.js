@@ -1,1 +1,0 @@
-02 Sáng Thế Ký01 01|28:33|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.02-sang-the-ky01-01

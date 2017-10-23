@@ -1,1 +1,0 @@
-Đê bô ra 2|19:24|6|nhan-vat.de-bo-ra.de-bo-ra-2

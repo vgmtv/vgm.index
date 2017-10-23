@@ -1,1 +1,0 @@
-Giê xu Là Bạn Thật 3|03:04|6|bai-hat-ca-ngoi-chua.g.gie-xu-la-ban-that-3

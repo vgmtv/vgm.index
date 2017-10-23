@@ -1,1 +1,0 @@
-Chỉ Con Lại Tình Ngài ThuyLong|05:06|0|bai-hat-ca-ngoi-chua.ch.chi-con-lai-tinh-ngai-thuylong

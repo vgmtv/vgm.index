@@ -1,1 +1,0 @@
-Chúa Luôn Mở Lối 2|04:47|6|bai-hat-ca-ngoi-chua.ch.chua-luon-mo-loi-2

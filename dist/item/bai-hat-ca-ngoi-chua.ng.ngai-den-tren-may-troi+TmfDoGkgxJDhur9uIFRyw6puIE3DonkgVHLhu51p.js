@@ -1,1 +1,0 @@
-Ngài Đến Trên Mây Trời|04:07|6|bai-hat-ca-ngoi-chua.ng.ngai-den-tren-may-troi

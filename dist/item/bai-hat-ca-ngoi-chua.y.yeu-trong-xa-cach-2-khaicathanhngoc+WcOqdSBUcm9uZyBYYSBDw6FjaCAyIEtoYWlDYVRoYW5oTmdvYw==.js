@@ -1,1 +1,0 @@
-Yêu Trong Xa Cách 2 KhaiCaThanhNgoc|05:12|0|bai-hat-ca-ngoi-chua.y.yeu-trong-xa-cach-2-khaicathanhngoc

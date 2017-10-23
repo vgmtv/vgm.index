@@ -1,1 +1,0 @@
-Thánh Thay, Thánh Thay Ngài Là Giê hô va LD|04:26|6|bai-hat-ca-ngoi-chua.th.thanh-thay-thanh-thay-ngai-la-gie-ho-va-ld

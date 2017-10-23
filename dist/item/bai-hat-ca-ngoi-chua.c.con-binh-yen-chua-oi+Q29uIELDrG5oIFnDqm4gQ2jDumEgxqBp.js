@@ -1,1 +1,0 @@
-Con Bình Yên Chúa Ơi|04:01|6|bai-hat-ca-ngoi-chua.c.con-binh-yen-chua-oi

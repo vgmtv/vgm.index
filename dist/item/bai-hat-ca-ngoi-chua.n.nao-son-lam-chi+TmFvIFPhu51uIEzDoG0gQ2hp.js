@@ -1,1 +1,0 @@
-Nao Sờn Làm Chi|01:53|6|bai-hat-ca-ngoi-chua.n.nao-son-lam-chi

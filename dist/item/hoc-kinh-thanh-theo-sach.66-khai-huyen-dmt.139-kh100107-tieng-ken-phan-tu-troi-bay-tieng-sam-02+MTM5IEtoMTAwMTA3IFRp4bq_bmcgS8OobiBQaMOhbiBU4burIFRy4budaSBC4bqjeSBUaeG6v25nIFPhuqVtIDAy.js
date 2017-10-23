@@ -1,1 +1,0 @@
-139 Kh100107 Tiếng Kèn Phán Từ Trời Bảy Tiếng Sấm 02|30:01|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.139-kh100107-tieng-ken-phan-tu-troi-bay-tieng-sam-02

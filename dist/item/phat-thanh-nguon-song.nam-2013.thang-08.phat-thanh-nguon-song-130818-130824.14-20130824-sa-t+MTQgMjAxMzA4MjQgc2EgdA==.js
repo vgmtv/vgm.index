@@ -1,1 +1,0 @@
-14 20130824 sa t|29:35|6|phat-thanh-nguon-song.nam-2013.thang-08.phat-thanh-nguon-song-130818-130824.14-20130824-sa-t

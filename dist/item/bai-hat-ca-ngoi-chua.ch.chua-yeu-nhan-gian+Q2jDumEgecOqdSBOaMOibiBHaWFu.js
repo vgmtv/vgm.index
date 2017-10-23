@@ -1,1 +1,0 @@
-Chúa yêu Nhân Gian|04:46|6|bai-hat-ca-ngoi-chua.ch.chua-yeu-nhan-gian

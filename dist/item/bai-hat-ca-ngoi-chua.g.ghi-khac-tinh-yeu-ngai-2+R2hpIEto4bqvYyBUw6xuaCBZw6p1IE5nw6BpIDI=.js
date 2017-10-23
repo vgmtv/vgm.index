@@ -1,1 +1,0 @@
-Ghi Khắc Tình Yêu Ngài 2|06:00|6|bai-hat-ca-ngoi-chua.g.ghi-khac-tinh-yeu-ngai-2

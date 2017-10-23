@@ -1,1 +1,0 @@
-17 Bản Tánh Của Đức Chúa Trời Toàn Tại, Toàn Tri, Toàn Năng|26:57|12|giao-ly.than-hoc-can-ban-nbq.17-ban-tanh-cua-duc-chua-troi-toan-tai-toan-tri-toan-nang

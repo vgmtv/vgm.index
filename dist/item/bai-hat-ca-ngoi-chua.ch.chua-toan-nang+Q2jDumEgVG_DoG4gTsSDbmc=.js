@@ -1,1 +1,0 @@
-Chúa Toàn Năng|02:17|6|bai-hat-ca-ngoi-chua.ch.chua-toan-nang

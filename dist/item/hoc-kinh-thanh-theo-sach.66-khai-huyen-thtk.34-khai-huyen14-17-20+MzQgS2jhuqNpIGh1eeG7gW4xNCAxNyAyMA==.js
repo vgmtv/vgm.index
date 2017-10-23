@@ -1,1 +1,0 @@
-34 Khải huyền14 17 20|25:45|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.34-khai-huyen14-17-20

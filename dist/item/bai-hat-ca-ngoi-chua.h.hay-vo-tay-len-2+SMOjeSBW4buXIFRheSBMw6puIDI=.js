@@ -1,1 +1,0 @@
-Hãy Vỗ Tay Lên 2|03:07|6|bai-hat-ca-ngoi-chua.h.hay-vo-tay-len-2

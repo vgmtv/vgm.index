@@ -1,1 +1,0 @@
-Ê li sa bét 1|21:27|6|nhan-vat.e-li-sa-bet.e-li-sa-bet-1

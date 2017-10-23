@@ -1,1 +1,0 @@
-Chúa Biết Từng Cánh Chim|04:23|6|bai-hat-ca-ngoi-chua.ch.chua-biet-tung-canh-chim

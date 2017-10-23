@@ -1,1 +1,0 @@
-04 Bối Rối Được Sáng Tỏ|11:27|0|kich.gap-chua-gie-xu-2.04-boi-roi-duoc-sang-to

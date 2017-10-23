@@ -1,1 +1,0 @@
-17 Giang100121 Chúa Giê xu Là Người Chăn Hiền Lành|26:36|6|hoc-kinh-thanh-theo-sach.43-giang-thtk.17-giang100121-chua-gie-xu-la-nguoi-chan-hien-lanh

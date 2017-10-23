@@ -1,1 +1,0 @@
-Chúa Tôi Cô Đơn|04:53|6|bai-hat-ca-ngoi-chua.ch.chua-toi-co-don

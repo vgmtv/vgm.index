@@ -1,1 +1,0 @@
-Lời Hứa Nguyện|00:46|6|bai-hat-ca-ngoi-chua.l.loi-hua-nguyen

@@ -1,1 +1,0 @@
-Giê xu Con Yêu Chúa|04:20|6|bai-hat-ca-ngoi-chua.g.gie-xu-con-yeu-chua

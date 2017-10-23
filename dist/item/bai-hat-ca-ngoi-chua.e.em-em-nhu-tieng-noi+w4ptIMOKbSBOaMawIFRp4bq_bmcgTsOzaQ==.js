@@ -1,1 +1,0 @@
-Êm Êm Như Tiếng Nói|03:34|6|bai-hat-ca-ngoi-chua.e.em-em-nhu-tieng-noi

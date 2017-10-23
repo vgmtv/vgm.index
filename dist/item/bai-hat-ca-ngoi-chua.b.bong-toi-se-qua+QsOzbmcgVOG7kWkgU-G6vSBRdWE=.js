@@ -1,1 +1,0 @@
-Bóng Tối Sẽ Qua|03:23|6|bai-hat-ca-ngoi-chua.b.bong-toi-se-qua

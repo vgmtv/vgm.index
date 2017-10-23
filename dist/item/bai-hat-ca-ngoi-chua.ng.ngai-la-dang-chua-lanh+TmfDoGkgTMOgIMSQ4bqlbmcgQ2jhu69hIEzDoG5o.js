@@ -1,1 +1,0 @@
-Ngài Là Đấng Chữa Lành|04:10|6|bai-hat-ca-ngoi-chua.ng.ngai-la-dang-chua-lanh

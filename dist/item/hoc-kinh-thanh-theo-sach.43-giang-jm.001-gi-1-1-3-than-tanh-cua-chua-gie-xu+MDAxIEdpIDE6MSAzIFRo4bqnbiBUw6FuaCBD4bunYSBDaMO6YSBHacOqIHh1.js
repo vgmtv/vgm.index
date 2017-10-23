@@ -1,1 +1,0 @@
-001 Gi 1:1 3 Thần Tánh Của Chúa Giê xu|37:53|12|hoc-kinh-thanh-theo-sach.43-giang-jm.001-gi-1-1-3-than-tanh-cua-chua-gie-xu

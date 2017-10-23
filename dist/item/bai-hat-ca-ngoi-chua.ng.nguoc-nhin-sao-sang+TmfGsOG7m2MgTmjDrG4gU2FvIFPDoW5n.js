@@ -1,1 +1,0 @@
-Ngước Nhìn Sao Sáng|05:11|6|bai-hat-ca-ngoi-chua.ng.nguoc-nhin-sao-sang

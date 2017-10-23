@@ -1,1 +1,0 @@
-008 Ro 1:16 17 Quyền Phép Tin Lành P1|01:05:28|12|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.008-ro-1-16-17-quyen-phep-tin-lanh-p1

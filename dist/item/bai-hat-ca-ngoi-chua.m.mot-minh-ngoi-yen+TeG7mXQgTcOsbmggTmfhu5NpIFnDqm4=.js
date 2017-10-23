@@ -1,1 +1,0 @@
-Một Mình Ngồi Yên|04:24|0|bai-hat-ca-ngoi-chua.m.mot-minh-ngoi-yen

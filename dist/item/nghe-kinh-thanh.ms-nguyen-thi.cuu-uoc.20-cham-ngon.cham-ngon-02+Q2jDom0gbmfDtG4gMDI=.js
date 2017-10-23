@@ -1,1 +1,0 @@
-Châm ngôn 02|02:15|31|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.20-cham-ngon.cham-ngon-02

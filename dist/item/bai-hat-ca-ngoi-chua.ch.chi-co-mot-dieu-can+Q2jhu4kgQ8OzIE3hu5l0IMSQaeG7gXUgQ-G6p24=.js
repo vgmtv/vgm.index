@@ -1,1 +1,0 @@
-Chỉ Có Một Điều Cần|02:28|6|bai-hat-ca-ngoi-chua.ch.chi-co-mot-dieu-can

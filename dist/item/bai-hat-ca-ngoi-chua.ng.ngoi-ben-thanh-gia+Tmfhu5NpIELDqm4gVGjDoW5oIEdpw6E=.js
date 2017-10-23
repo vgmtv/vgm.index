@@ -1,1 +1,0 @@
-Ngồi Bên Thánh Giá|05:02|6|bai-hat-ca-ngoi-chua.ng.ngoi-ben-thanh-gia

@@ -1,1 +1,0 @@
-Gia cốp 02|13:21|6|nhan-vat.gia-cop.gia-cop-02

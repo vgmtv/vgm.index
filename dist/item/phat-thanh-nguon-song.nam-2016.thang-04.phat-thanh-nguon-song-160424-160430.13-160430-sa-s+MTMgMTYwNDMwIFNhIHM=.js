@@ -1,1 +1,0 @@
-13 160430 Sa s|29:25|0|phat-thanh-nguon-song.nam-2016.thang-04.phat-thanh-nguon-song-160424-160430.13-160430-sa-s

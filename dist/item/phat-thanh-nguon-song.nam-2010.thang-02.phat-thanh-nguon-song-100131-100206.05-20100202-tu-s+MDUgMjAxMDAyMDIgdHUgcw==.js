@@ -1,1 +1,0 @@
-05 20100202 tu s|28:36|6|phat-thanh-nguon-song.nam-2010.thang-02.phat-thanh-nguon-song-100131-100206.05-20100202-tu-s

@@ -1,1 +1,0 @@
-Lời Nguyện Cầu Đêm Giáng Sinh|06:15|6|bai-hat-ca-ngoi-chua.l.loi-nguyen-cau-dem-giang-sinh

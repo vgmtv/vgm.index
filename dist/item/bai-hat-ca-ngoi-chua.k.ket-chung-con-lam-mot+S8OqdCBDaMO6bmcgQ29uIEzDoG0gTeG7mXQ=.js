@@ -1,1 +1,0 @@
-Kêt Chúng Con Làm Một|03:09|6|bai-hat-ca-ngoi-chua.k.ket-chung-con-lam-mot

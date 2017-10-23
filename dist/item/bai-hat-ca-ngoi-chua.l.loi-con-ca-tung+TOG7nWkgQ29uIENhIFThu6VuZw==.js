@@ -1,1 +1,0 @@
-Lời Con Ca Tụng|06:24|6|bai-hat-ca-ngoi-chua.l.loi-con-ca-tung

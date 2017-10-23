@@ -1,1 +1,0 @@
-Xin Đối Mặt Chúa|05:07|6|bai-hat-ca-ngoi-chua.x.xin-doi-mat-chua

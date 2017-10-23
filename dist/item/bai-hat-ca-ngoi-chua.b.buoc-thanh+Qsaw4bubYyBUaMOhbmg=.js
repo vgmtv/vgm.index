@@ -1,1 +1,0 @@
-Bước Thánh|04:27|6|bai-hat-ca-ngoi-chua.b.buoc-thanh

@@ -1,1 +1,0 @@
-Lời Vọng Tình yêu|06:38|6|bai-hat-ca-ngoi-chua.l.loi-vong-tinh-yeu

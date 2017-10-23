@@ -1,1 +1,0 @@
-Thương Khó|06:08|6|bai-hat-ca-ngoi-chua.th.thuong-kho

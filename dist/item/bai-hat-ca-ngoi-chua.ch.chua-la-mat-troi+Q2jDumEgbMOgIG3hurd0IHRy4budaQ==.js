@@ -1,1 +1,0 @@
-Chúa là mặt trời|04:12|0|bai-hat-ca-ngoi-chua.ch.chua-la-mat-troi

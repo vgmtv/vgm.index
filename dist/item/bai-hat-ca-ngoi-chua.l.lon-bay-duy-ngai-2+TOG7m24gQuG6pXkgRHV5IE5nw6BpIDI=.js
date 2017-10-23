@@ -1,1 +1,0 @@
-Lớn Bấy Duy Ngài 2|04:48|6|bai-hat-ca-ngoi-chua.l.lon-bay-duy-ngai-2

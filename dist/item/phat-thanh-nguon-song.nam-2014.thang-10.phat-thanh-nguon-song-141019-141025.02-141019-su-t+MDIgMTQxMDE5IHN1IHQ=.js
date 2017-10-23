@@ -1,1 +1,0 @@
-02 141019 su t|28:42|0|phat-thanh-nguon-song.nam-2014.thang-10.phat-thanh-nguon-song-141019-141025.02-141019-su-t

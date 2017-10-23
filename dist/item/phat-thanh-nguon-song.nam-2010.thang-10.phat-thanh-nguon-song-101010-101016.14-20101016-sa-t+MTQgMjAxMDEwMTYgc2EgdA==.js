@@ -1,1 +1,0 @@
-14 20101016 sa t|28:46|6|phat-thanh-nguon-song.nam-2010.thang-10.phat-thanh-nguon-song-101010-101016.14-20101016-sa-t

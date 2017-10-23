@@ -1,1 +1,0 @@
-Giê Hô Va Nissi|02:41|6|bai-hat-ca-ngoi-chua.g.gie-ho-va-nissi

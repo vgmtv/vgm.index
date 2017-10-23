@@ -1,1 +1,0 @@
-Vâng Lời Chúa|01:51|16|thieu-nhi.bai-hat.vang-loi-chua

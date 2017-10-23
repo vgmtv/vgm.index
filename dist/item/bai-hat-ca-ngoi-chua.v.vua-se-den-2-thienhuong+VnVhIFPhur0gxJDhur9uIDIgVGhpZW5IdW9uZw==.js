@@ -1,1 +1,0 @@
-Vua Sẽ Đến 2 ThienHuong|01:54|6|bai-hat-ca-ngoi-chua.v.vua-se-den-2-thienhuong

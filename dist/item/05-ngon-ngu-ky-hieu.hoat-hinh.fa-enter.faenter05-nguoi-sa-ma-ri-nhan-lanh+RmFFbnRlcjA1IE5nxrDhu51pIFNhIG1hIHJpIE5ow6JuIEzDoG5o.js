@@ -1,1 +1,0 @@
-FaEnter05 Người Sa ma ri Nhân Lành|39:43|0|05-ngon-ngu-ky-hieu.hoat-hinh.fa-enter.faenter05-nguoi-sa-ma-ri-nhan-lanh

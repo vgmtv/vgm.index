@@ -1,1 +1,0 @@
-Trời Cao Hỡi|04:26|6|bai-hat-ca-ngoi-chua.tr.troi-cao-hoi
