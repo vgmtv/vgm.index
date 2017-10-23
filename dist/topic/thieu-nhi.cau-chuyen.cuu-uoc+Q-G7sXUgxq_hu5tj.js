@@ -1,0 +1,1 @@
+Cựu Ước|18|cuu-uoc|false|16|true
