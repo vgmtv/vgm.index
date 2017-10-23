@@ -1,1 +1,0 @@
-07-Vâng Lời Chúa|27:15|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.gioi-thieu.07-vang-loi-chua

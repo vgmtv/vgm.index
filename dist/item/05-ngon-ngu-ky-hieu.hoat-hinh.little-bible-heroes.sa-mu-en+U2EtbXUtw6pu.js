@@ -1,1 +1,0 @@
-Sa-mu-ên|02:16|0|05-ngon-ngu-ky-hieu.hoat-hinh.little-bible-heroes.sa-mu-en

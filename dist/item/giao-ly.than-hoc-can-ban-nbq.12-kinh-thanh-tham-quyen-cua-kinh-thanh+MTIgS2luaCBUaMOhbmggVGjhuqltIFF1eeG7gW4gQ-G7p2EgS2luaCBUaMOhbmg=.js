@@ -1,0 +1,1 @@
+12 Kinh Thánh Thẩm Quyền Của Kinh Thánh|24:25|12|giao-ly.than-hoc-can-ban-nbq.12-kinh-thanh-tham-quyen-cua-kinh-thanh

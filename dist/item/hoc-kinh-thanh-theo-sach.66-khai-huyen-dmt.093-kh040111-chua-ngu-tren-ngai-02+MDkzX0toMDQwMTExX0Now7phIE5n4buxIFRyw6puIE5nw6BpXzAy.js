@@ -1,1 +1,0 @@
-093_Kh040111_Chúa Ngự Trên Ngài_02|29:11|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.093-kh040111-chua-ngu-tren-ngai-02

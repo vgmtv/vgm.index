@@ -1,1 +1,0 @@
-28-Ro_13-Người Chăn Bầy|30:43|6|hoc-kinh-thanh-theo-sach.45-ro-ma-tcdtk.28-ro-13-nguoi-chan-bay

@@ -1,1 +1,0 @@
-062-Lu6_12-19Môn Đồ Chúa Gọi-Gia-cơ_Si-môn_Giu-đa-P2|27:36|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.062-lu6-12-19mon-do-chua-goi-gia-co-si-mon-giu-da-p2

@@ -1,1 +1,0 @@
-03-Mặc Khải Của Đức Chúa Trời-Thiên Nhiên|22:19|12|giao-ly.than-hoc-can-ban-nbq.03-mac-khai-cua-duc-chua-troi-thien-nhien

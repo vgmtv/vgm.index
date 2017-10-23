@@ -1,1 +1,0 @@
-Hát Cho Người Dấu Yêu Giê-xu|06:37|6|bai-hat-ca-ngoi-chua.h.hat-cho-nguoi-dau-yeu-gie-xu

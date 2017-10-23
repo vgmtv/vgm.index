@@ -1,1 +1,0 @@
-Thượng Đế của anh đâu-ToHa|06:30|0|bai-hat-ca-ngoi-chua.th.thuong-de-cua-anh-dau-toha

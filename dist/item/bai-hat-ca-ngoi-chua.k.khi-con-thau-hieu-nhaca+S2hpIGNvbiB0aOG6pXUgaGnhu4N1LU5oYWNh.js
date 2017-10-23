@@ -1,1 +1,0 @@
-Khi con thấu hiểu-Nhaca|05:25|0|bai-hat-ca-ngoi-chua.k.khi-con-thau-hieu-nhaca

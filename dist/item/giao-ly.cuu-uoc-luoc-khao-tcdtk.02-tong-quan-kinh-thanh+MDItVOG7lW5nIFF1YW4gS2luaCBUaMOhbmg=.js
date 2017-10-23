@@ -1,1 +1,0 @@
-02-Tổng Quan Kinh Thánh|26:02|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.02-tong-quan-kinh-thanh

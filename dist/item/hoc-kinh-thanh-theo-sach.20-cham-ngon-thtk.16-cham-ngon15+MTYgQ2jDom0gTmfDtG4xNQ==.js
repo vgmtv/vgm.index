@@ -1,0 +1,1 @@
+16 Châm Ngôn15|27:23|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.16-cham-ngon15

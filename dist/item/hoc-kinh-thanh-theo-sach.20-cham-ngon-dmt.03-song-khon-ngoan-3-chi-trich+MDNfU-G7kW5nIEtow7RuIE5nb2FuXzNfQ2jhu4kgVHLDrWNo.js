@@ -1,1 +1,0 @@
-03_Sống Khôn Ngoan_3_Chỉ Trích|34:13|12|hoc-kinh-thanh-theo-sach.20-cham-ngon-dmt.03-song-khon-ngoan-3-chi-trich

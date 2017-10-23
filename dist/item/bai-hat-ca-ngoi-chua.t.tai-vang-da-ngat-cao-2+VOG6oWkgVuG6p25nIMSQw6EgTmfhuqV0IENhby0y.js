@@ -1,1 +1,0 @@
-Tại Vầng Đá Ngất Cao-2|04:13|6|bai-hat-ca-ngoi-chua.t.tai-vang-da-ngat-cao-2

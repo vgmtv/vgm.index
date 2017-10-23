@@ -1,1 +1,0 @@
-084_Kh040101_Y-sơ-ra-ên Và Hội Thánh_01|29:59|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.084-kh040101-y-so-ra-en-va-hoi-thanh-01

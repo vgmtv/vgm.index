@@ -1,1 +1,0 @@
-Ga01_Luận Đề Và Nội Dung Của Thư Ga-la-ti|23:30|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga01-luan-de-va-noi-dung-cua-thu-ga-la-ti

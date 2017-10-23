@@ -1,1 +1,0 @@
-12_161007_Fr-t|28:39|0|phat-thanh-nguon-song.nam-2016.thang-10.phat-thanh-nguon-song-161002-161008.12-161007-fr-t

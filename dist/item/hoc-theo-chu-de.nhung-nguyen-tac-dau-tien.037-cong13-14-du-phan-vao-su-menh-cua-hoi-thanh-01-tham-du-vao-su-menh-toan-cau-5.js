@@ -1,1 +1,1 @@
-037_Cong13_14_Dự Phần Vào Sứ Mệnh Của Hội Thánh_01_Tham Dự Vào Sứ Mệnh Toàn Cầu_5|26:53|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.037-cong13-14-du-phan-vao-su-menh-cua-hoi-thanh-01-tham-du-vao-su-menh-toan-cau-5
+037 Cong13 14 Dự Phần Vào Sứ Mệnh Của Hội Thánh 01 Tham Dự Vào Sứ Mệnh Toàn Cầu 5|26:53|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.037-cong13-14-du-phan-vao-su-menh-cua-hoi-thanh-01-tham-du-vao-su-menh-toan-cau-5

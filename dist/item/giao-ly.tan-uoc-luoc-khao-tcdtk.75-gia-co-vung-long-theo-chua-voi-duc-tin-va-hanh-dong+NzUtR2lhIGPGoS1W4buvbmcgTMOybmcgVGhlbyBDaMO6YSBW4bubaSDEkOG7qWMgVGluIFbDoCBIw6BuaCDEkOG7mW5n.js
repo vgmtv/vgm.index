@@ -1,1 +1,0 @@
-75-Gia cơ-Vững Lòng Theo Chúa Với Đức Tin Và Hành Động|33:12|12|giao-ly.tan-uoc-luoc-khao-tcdtk.75-gia-co-vung-long-theo-chua-voi-duc-tin-va-hanh-dong

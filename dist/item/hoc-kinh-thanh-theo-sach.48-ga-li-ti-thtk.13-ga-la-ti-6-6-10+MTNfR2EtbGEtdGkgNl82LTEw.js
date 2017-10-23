@@ -1,1 +1,0 @@
-13_Ga-la-ti 6_6-10|33:33|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-thtk.13-ga-la-ti-6-6-10

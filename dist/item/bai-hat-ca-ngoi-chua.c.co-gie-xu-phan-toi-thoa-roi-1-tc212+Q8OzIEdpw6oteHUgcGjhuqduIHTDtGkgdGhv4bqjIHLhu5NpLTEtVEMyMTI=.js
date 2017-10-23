@@ -1,1 +1,0 @@
-Có Giê-xu phần tôi thoả rồi-1-TC212|03:50|0|bai-hat-ca-ngoi-chua.c.co-gie-xu-phan-toi-thoa-roi-1-tc212

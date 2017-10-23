@@ -1,1 +1,0 @@
-1Co Bai08_Sự Khôn Ngoan Của Đức Chúa Trời_020609|13:20|6|hoc-kinh-thanh-theo-sach.46-i-co-rinh-to-ns.1co-bai08-su-khon-ngoan-cua-duc-chua-troi-020609

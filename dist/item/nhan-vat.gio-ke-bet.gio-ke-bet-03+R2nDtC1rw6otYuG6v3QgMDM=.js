@@ -1,1 +1,0 @@
-Giô-kê-bết 03|16:52|6|nhan-vat.gio-ke-bet.gio-ke-bet-03

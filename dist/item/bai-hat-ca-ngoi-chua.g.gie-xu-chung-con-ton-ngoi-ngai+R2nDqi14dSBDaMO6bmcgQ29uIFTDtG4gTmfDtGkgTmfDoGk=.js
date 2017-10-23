@@ -1,1 +1,0 @@
-Giê-xu Chúng Con Tôn Ngôi Ngài|04:05|6|bai-hat-ca-ngoi-chua.g.gie-xu-chung-con-ton-ngoi-ngai

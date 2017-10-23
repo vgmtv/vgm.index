@@ -1,0 +1,1 @@
+30 Sa17 1 8Đức Chúa Trời Hứa Cùng Áp ra ham|17:48|18|hoc-kinh-thanh-theo-sach.01-sang-the-ky-dpt.30-sa17-1-8duc-chua-troi-hua-cung-ap-ra-ham

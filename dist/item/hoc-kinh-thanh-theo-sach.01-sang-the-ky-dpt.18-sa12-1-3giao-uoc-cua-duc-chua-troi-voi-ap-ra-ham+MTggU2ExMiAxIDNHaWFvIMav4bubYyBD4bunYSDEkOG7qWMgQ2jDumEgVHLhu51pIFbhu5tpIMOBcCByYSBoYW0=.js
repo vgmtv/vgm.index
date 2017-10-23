@@ -1,0 +1,1 @@
+18 Sa12 1 3Giao Ước Của Đức Chúa Trời Với Áp ra ham|16:37|18|hoc-kinh-thanh-theo-sach.01-sang-the-ky-dpt.18-sa12-1-3giao-uoc-cua-duc-chua-troi-voi-ap-ra-ham

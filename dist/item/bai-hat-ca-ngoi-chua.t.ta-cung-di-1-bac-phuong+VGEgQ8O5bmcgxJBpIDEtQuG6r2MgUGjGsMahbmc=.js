@@ -1,1 +1,0 @@
-Ta Cùng Đi 1-Bắc Phương|02:10|6|bai-hat-ca-ngoi-chua.t.ta-cung-di-1-bac-phuong

@@ -1,1 +1,0 @@
-05-Tôi Biết Đấng Nắm Giữ Tương Lai-Khue|04:11|6|bai-hat-ca-ngoi-chua.0-vgm.05-toi-biet-dang-nam-giu-tuong-lai-khue

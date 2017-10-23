@@ -1,1 +1,0 @@
-32-Lu11_27-36Nghe Và Giữ Lời Chúa|47:03|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.32-lu11-27-36nghe-va-giu-loi-chua

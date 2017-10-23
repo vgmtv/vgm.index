@@ -1,1 +1,0 @@
-Giê-xu Bên Tôi 2|04:57|6|bai-hat-ca-ngoi-chua.g.gie-xu-ben-toi-2

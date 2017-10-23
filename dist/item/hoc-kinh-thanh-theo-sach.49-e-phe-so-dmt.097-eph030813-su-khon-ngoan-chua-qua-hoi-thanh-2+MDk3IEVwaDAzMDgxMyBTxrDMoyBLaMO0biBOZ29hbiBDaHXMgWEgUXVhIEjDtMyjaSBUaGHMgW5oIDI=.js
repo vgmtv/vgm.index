@@ -1,0 +1,1 @@
+097 Eph030813 Sự Khôn Ngoan Chúa Qua Hội Thánh 2|27:34|12|hoc-kinh-thanh-theo-sach.49-e-phe-so-dmt.097-eph030813-su-khon-ngoan-chua-qua-hoi-thanh-2

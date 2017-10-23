@@ -1,1 +1,0 @@
-005-Ê-sau Và Gia-cốp|03:11|0|05-ngon-ngu-ky-hieu.ke-chuyen-kinh-thanh.cuu-uoc.005-e-sau-va-gia-cop

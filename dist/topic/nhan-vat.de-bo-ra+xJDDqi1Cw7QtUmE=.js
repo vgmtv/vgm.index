@@ -1,1 +1,0 @@
-Đê-Bô-Ra|2|nhan-vat.de-bo-ra|false|6

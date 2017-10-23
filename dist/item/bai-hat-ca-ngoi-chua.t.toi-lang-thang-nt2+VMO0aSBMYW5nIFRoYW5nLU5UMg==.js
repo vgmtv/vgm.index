@@ -1,1 +1,0 @@
-Tôi Lang Thang-NT2|04:03|6|bai-hat-ca-ngoi-chua.t.toi-lang-thang-nt2

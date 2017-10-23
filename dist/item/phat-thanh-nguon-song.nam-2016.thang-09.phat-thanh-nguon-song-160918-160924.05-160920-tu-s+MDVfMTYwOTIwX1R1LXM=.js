@@ -1,1 +1,0 @@
-05_160920_Tu-s|28:36|0|phat-thanh-nguon-song.nam-2016.thang-09.phat-thanh-nguon-song-160918-160924.05-160920-tu-s

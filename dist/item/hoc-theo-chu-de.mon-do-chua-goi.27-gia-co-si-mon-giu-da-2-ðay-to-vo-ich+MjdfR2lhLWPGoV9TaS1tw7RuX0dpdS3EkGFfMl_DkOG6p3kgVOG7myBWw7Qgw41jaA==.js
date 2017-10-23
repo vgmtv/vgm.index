@@ -1,1 +1,0 @@
-27_Gia-cơ_Si-môn_Giu-Đa_2_Ðầy Tớ Vô Ích|28:49|6|hoc-theo-chu-de.mon-do-chua-goi.27-gia-co-si-mon-giu-da-2-ðay-to-vo-ich

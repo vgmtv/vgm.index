@@ -1,1 +1,0 @@
-11-Sáng thế ký 01_01-07-Hậu Quả Không Nghe Chúa 2|27:12|6|hoc-theo-chu-de.tiep-can.11-sang-the-ky-01-01-07-hau-qua-khong-nghe-chua-2

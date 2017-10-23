@@ -1,1 +1,0 @@
-043-Gi 5:1-16 Quyền Lực Đáng Nguyền Rủa Của Đạo Giả|27:50|12|hoc-kinh-thanh-theo-sach.43-giang-jm.043-gi-5-1-16-quyen-luc-dang-nguyen-rua-cua-dao-gia

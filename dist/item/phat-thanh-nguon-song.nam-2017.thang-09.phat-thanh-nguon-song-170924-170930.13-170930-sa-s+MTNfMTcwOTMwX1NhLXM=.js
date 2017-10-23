@@ -1,1 +1,0 @@
-13_170930_Sa-s|29:11|0|phat-thanh-nguon-song.nam-2017.thang-09.phat-thanh-nguon-song-170924-170930.13-170930-sa-s

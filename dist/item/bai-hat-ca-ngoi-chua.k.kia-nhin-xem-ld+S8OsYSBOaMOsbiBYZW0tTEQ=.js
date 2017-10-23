@@ -1,1 +1,0 @@
-Kìa Nhìn Xem-LD|04:32|0|bai-hat-ca-ngoi-chua.k.kia-nhin-xem-ld

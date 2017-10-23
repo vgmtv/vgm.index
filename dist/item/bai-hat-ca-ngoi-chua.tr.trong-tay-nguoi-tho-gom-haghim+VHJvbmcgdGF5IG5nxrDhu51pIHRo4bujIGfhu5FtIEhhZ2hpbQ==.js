@@ -1,0 +1,1 @@
+Trong tay người thợ gốm Haghim|07:01|0|bai-hat-ca-ngoi-chua.tr.trong-tay-nguoi-tho-gom-haghim

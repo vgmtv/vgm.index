@@ -1,1 +1,0 @@
-Trong Tay Chúa-1-LinhNang-HuuChuong|03:59|6|bai-hat-ca-ngoi-chua.tr.trong-tay-chua-1-linhnang-huuchuong

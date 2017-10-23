@@ -1,1 +1,0 @@
-Trong Danh Giê-xu-Mydung-LeVu|01:56|6|bai-hat-ca-ngoi-chua.tr.trong-danh-gie-xu-mydung-levu

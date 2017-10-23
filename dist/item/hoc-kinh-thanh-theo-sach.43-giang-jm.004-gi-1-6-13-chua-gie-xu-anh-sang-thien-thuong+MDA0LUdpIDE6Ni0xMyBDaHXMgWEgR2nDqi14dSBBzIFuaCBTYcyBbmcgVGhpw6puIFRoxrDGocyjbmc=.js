@@ -1,1 +1,0 @@
-004-Gi 1:6-13 Chúa Giê-xu Ánh Sáng Thiên Thượng|32:36|12|hoc-kinh-thanh-theo-sach.43-giang-jm.004-gi-1-6-13-chua-gie-xu-anh-sang-thien-thuong

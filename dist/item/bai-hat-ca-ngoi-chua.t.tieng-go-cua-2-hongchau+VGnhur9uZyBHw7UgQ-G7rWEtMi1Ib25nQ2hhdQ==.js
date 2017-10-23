@@ -1,1 +1,0 @@
-Tiếng Gõ Cửa-2-HongChau|06:52|6|bai-hat-ca-ngoi-chua.t.tieng-go-cua-2-hongchau

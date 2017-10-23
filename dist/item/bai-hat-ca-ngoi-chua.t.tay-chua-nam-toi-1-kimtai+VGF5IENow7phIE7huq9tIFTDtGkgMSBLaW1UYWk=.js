@@ -1,0 +1,1 @@
+Tay Chúa Nắm Tôi 1 KimTai|04:17|0|bai-hat-ca-ngoi-chua.t.tay-chua-nam-toi-1-kimtai

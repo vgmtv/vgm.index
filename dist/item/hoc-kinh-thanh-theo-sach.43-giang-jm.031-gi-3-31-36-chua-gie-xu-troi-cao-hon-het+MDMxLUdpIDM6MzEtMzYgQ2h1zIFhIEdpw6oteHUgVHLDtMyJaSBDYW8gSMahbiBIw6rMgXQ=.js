@@ -1,1 +1,0 @@
-031-Gi 3:31-36 Chúa Giê-xu Trổi Cao Hơn Hết|28:07|12|hoc-kinh-thanh-theo-sach.43-giang-jm.031-gi-3-31-36-chua-gie-xu-troi-cao-hon-het

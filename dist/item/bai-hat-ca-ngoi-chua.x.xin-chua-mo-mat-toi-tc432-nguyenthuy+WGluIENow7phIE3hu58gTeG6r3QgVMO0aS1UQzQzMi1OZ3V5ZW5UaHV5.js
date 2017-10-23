@@ -1,1 +1,0 @@
-Xin Chúa Mở Mắt Tôi-TC432-NguyenThuy|03:13|6|bai-hat-ca-ngoi-chua.x.xin-chua-mo-mat-toi-tc432-nguyenthuy

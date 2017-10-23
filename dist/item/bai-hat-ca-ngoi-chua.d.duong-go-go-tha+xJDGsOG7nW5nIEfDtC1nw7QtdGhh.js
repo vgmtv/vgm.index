@@ -1,1 +1,0 @@
-Đường Gô-gô-tha|05:18|6|bai-hat-ca-ngoi-chua.d.duong-go-go-tha

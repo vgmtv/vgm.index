@@ -1,0 +1,1 @@
+Tôi Biết Đấng Nắm Giữ Tương Lai 2 Khue|04:11|6|bai-hat-ca-ngoi-chua.t.toi-biet-dang-nam-giu-tuong-lai-2-khue

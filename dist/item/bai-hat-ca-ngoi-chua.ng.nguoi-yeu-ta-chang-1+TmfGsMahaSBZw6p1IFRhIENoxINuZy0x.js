@@ -1,1 +1,0 @@
-Ngươi Yêu Ta Chăng-1|04:44|6|bai-hat-ca-ngoi-chua.ng.nguoi-yeu-ta-chang-1

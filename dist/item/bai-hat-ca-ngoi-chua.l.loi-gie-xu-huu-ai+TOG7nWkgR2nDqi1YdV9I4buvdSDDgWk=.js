@@ -1,1 +1,0 @@
-Lời Giê-Xu_Hữu Ái|03:38|6|bai-hat-ca-ngoi-chua.l.loi-gie-xu-huu-ai

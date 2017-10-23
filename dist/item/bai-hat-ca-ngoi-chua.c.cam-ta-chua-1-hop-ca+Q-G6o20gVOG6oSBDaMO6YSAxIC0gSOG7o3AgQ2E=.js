@@ -1,1 +1,0 @@
-Cảm Tạ Chúa 1 - Hợp Ca|04:56|6|bai-hat-ca-ngoi-chua.c.cam-ta-chua-1-hop-ca

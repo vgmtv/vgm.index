@@ -1,1 +1,0 @@
-Bên Tôi Là Chúa Giê-xu|03:42|6|bai-hat-ca-ngoi-chua.b.ben-toi-la-chua-gie-xu

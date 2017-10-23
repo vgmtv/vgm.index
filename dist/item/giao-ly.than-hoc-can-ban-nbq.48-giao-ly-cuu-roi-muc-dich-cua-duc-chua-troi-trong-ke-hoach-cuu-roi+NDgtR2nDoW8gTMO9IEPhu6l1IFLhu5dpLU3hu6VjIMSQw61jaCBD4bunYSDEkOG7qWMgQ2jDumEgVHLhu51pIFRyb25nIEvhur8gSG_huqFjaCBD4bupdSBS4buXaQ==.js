@@ -1,1 +1,0 @@
-48-Giáo Lý Cứu Rỗi-Mục Đích Của Đức Chúa Trời Trong Kế Hoạch Cứu Rỗi|20:42|12|giao-ly.than-hoc-can-ban-nbq.48-giao-ly-cuu-roi-muc-dich-cua-duc-chua-troi-trong-ke-hoach-cuu-roi

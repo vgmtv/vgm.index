@@ -1,1 +1,0 @@
-02-Ro_1.1-7-Nô Lệ Và Thánh|40:50|6|hoc-kinh-thanh-theo-sach.45-ro-ma-tcdtk.02-ro-1-1-7-no-le-va-thanh

@@ -1,1 +1,0 @@
-Tôi Tin 3-NhuThao|04:37|6|bai-hat-ca-ngoi-chua.t.toi-tin-3-nhuthao

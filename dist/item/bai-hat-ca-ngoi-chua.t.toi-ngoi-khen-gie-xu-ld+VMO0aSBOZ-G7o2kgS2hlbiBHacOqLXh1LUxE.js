@@ -1,1 +1,0 @@
-Tôi Ngợi Khen Giê-xu-LD|03:06|6|bai-hat-ca-ngoi-chua.t.toi-ngoi-khen-gie-xu-ld

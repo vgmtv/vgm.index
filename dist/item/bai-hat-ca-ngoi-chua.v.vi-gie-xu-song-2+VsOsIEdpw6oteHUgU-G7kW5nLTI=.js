@@ -1,1 +1,0 @@
-Vì Giê-xu Sống-2|04:32|6|bai-hat-ca-ngoi-chua.v.vi-gie-xu-song-2

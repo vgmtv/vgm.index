@@ -1,1 +1,0 @@
-Giê-Hô-Va Là Chúa Tôi|03:31|6|bai-hat-ca-ngoi-chua.g.gie-ho-va-la-chua-toi

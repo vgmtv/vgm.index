@@ -1,1 +1,0 @@
-55-Lu18_35-19_10Hai Người Theo Chúa|48:56|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.55-lu18-35-19-10hai-nguoi-theo-chua

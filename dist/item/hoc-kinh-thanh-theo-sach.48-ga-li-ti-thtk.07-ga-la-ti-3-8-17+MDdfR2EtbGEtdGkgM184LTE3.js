@@ -1,1 +1,0 @@
-07_Ga-la-ti 3_8-17|32:23|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-thtk.07-ga-la-ti-3-8-17

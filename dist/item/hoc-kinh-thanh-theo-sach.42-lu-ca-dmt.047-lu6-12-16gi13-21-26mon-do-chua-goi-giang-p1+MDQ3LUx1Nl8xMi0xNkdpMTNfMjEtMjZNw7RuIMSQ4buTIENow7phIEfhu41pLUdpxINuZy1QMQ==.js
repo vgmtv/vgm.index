@@ -1,1 +1,0 @@
-047-Lu6_12-16Gi13_21-26Môn Đồ Chúa Gọi-Giăng-P1|34:24|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.047-lu6-12-16gi13-21-26mon-do-chua-goi-giang-p1

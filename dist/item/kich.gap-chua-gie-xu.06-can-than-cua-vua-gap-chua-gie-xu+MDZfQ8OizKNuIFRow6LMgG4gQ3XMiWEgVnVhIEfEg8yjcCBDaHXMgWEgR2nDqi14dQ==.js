@@ -1,1 +1,0 @@
-06_Cận Thần Của Vua Gặp Chúa Giê-xu|17:32|0|kich.gap-chua-gie-xu.06-can-than-cua-vua-gap-chua-gie-xu

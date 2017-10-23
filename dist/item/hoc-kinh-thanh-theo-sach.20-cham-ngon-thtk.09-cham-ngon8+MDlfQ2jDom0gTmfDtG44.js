@@ -1,1 +1,0 @@
-09_Châm Ngôn8|24:25|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.09-cham-ngon8

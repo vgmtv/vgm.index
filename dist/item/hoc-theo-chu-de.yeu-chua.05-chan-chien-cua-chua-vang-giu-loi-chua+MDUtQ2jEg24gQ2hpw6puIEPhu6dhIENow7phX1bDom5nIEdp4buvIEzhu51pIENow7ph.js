@@ -1,1 +1,0 @@
-05-Chăn Chiên Của Chúa_Vâng Giữ Lời Chúa|24:54|14|hoc-theo-chu-de.yeu-chua.05-chan-chien-cua-chua-vang-giu-loi-chua

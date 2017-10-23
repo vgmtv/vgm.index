@@ -1,1 +1,0 @@
-Giê-xu Chọn Tôi 2|03:28|6|bai-hat-ca-ngoi-chua.g.gie-xu-chon-toi-2

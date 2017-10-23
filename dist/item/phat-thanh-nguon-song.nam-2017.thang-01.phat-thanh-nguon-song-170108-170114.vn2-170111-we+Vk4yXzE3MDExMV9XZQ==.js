@@ -1,1 +1,0 @@
-VN2_170111_We|28:27|0|phat-thanh-nguon-song.nam-2017.thang-01.phat-thanh-nguon-song-170108-170114.vn2-170111-we

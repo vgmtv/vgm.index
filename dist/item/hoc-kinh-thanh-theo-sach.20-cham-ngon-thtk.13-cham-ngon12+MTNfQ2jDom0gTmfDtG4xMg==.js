@@ -1,1 +1,0 @@
-13_Châm Ngôn12|24:45|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.13-cham-ngon12

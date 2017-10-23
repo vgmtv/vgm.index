@@ -1,1 +1,0 @@
-12_170120_Fr-t|31:50|0|phat-thanh-nguon-song.nam-2017.thang-01.phat-thanh-nguon-song-170115-170121.12-170120-fr-t

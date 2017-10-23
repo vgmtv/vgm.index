@@ -1,1 +1,0 @@
-Ê-Xơ-Tê|13|nhan-vat.e-xo-te|false|6

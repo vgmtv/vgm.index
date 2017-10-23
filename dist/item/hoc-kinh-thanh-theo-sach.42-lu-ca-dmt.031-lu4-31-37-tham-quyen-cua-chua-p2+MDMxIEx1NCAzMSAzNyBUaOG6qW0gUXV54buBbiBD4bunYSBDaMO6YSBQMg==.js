@@ -1,0 +1,1 @@
+031 Lu4 31 37 Thẩm Quyền Của Chúa P2|27:20|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.031-lu4-31-37-tham-quyen-cua-chua-p2

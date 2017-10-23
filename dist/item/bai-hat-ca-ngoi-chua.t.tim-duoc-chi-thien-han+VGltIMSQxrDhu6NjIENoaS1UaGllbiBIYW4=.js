@@ -1,1 +1,0 @@
-Tim Được Chi-Thien Han|04:05|6|bai-hat-ca-ngoi-chua.t.tim-duoc-chi-thien-han

@@ -1,1 +1,0 @@
-01_Bối Cảnh Lịch Sử - Hội Thánh Philip|28:12|4|hoc-kinh-thanh-theo-sach.50-phi-lip-lhp.01-boi-canh-lich-su-hoi-thanh-philip

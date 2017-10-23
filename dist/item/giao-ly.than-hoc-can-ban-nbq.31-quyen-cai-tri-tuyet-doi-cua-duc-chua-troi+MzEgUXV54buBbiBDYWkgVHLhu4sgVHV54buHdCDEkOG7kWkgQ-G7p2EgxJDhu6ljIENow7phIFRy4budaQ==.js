@@ -1,0 +1,1 @@
+31 Quyền Cai Trị Tuyệt Đối Của Đức Chúa Trời|25:41|12|giao-ly.than-hoc-can-ban-nbq.31-quyen-cai-tri-tuyet-doi-cua-duc-chua-troi

@@ -1,1 +1,0 @@
-06_20131119_tu-t|28:50|0|phat-thanh-nguon-song.nam-2013.thang-11.phat-thanh-nguon-song-131117-131123.06-20131119-tu-t

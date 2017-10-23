@@ -1,1 +1,0 @@
-Thành Phố Giê-ru-sa-lem-LuuHong|04:54|6|bai-hat-ca-ngoi-chua.th.thanh-pho-gie-ru-sa-lem-luuhong

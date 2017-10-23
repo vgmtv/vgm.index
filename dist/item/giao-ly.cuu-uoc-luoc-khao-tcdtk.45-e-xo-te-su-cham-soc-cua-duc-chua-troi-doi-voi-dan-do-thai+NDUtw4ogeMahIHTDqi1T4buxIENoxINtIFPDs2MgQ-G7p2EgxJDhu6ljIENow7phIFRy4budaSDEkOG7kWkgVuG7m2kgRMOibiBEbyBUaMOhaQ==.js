@@ -1,1 +1,0 @@
-45-Ê xơ tê-Sự Chăm Sóc Của Đức Chúa Trời Đối Với Dân Do Thái|30:31|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.45-e-xo-te-su-cham-soc-cua-duc-chua-troi-doi-voi-dan-do-thai

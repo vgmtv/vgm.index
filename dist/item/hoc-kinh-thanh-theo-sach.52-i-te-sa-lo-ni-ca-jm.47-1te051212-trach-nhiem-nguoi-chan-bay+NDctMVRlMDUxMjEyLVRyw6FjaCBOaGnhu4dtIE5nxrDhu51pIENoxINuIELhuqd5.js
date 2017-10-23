@@ -1,1 +1,0 @@
-47-1Te051212-Trách Nhiệm Người Chăn Bầy|27:39|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.47-1te051212-trach-nhiem-nguoi-chan-bay

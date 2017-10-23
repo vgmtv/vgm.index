@@ -1,1 +1,0 @@
-Bát-sê-ba 3|22:53|6|nhan-vat.bat-se-ba.bat-se-ba-3

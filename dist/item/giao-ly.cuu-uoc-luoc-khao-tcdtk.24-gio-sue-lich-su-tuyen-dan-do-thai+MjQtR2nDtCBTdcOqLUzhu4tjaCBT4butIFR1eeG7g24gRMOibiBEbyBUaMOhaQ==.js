@@ -1,1 +1,0 @@
-24-Giô Suê-Lịch Sử Tuyển Dân Do Thái|28:30|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.24-gio-sue-lich-su-tuyen-dan-do-thai

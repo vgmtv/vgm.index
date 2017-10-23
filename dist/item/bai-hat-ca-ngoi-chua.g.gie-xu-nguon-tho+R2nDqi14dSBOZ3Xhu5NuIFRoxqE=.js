@@ -1,1 +1,0 @@
-Giê-xu Nguồn Thơ|05:44|6|bai-hat-ca-ngoi-chua.g.gie-xu-nguon-tho

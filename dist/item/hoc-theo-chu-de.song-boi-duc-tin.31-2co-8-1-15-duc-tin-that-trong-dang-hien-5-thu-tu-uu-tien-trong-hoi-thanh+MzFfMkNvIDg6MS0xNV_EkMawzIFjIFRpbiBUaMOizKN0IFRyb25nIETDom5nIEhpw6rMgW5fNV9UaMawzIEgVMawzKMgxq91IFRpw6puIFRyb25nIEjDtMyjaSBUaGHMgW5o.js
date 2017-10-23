@@ -1,1 +1,0 @@
-31_2Co 8:1-15_Đức Tin Thật Trong Dâng Hiến_5_Thứ Tự Ưu Tiên Trong Hội Thánh|27:14|12|hoc-theo-chu-de.song-boi-duc-tin.31-2co-8-1-15-duc-tin-that-trong-dang-hien-5-thu-tu-uu-tien-trong-hoi-thanh

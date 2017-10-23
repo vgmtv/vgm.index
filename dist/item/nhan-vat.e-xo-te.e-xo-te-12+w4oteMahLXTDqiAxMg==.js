@@ -1,1 +1,0 @@
-Ê-xơ-tê 12|19:54|6|nhan-vat.e-xo-te.e-xo-te-12

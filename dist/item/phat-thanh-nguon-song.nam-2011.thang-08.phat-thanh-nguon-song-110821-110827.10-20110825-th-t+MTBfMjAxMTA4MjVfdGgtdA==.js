@@ -1,1 +1,0 @@
-10_20110825_th-t|29:18|6|phat-thanh-nguon-song.nam-2011.thang-08.phat-thanh-nguon-song-110821-110827.10-20110825-th-t

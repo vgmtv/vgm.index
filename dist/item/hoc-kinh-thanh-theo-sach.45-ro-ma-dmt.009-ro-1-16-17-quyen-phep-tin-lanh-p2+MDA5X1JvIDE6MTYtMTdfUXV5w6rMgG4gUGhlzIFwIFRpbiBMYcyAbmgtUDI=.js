@@ -1,1 +1,0 @@
-009_Ro 1:16-17_Quyền Phép Tin Lành-P2|55:21|12|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.009-ro-1-16-17-quyen-phep-tin-lanh-p2

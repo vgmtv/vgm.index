@@ -1,1 +1,0 @@
-036-Gi 4:27-42  Nước Hằng Sống|30:46|12|hoc-kinh-thanh-theo-sach.43-giang-jm.036-gi-4-27-42-nuoc-hang-song

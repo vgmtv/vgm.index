@@ -1,1 +1,0 @@
-Chỉ Có Giê-xu|03:23|6|bai-hat-ca-ngoi-chua.ch.chi-co-gie-xu

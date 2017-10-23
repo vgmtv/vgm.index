@@ -1,1 +1,0 @@
-Giê-Hô-Va Salom-DoanTrang|03:18|0|bai-hat-ca-ngoi-chua.g.gie-ho-va-salom-doantrang

@@ -1,1 +1,1 @@
-2Co Bai27_Chiến Thắng Nhờ Quyền Năng Chúa Trời_Đừng Dựa Vào bề Ngoài Mà Xét Đoán_100111|25:11|6|hoc-kinh-thanh-theo-sach.47-2co-rinh-to-ns.2co-bai27-chien-thang-nho-quyen-nang-chua-troi-dung-dua-vao-be-ngoai-ma-xet-doan-100111
+2Co Bai27 Chiến Thắng Nhờ Quyền Năng Chúa Trời Đừng Dựa Vào bề Ngoài Mà Xét Đoán 100111|25:11|6|hoc-kinh-thanh-theo-sach.47-2co-rinh-to-ns.2co-bai27-chien-thang-nho-quyen-nang-chua-troi-dung-dua-vao-be-ngoai-ma-xet-doan-100111

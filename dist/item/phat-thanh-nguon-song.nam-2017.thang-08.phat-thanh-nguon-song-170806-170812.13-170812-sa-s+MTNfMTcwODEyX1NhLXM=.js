@@ -1,1 +1,0 @@
-13_170812_Sa-s|30:12|0|phat-thanh-nguon-song.nam-2017.thang-08.phat-thanh-nguon-song-170806-170812.13-170812-sa-s

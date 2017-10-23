@@ -1,1 +1,0 @@
-04_Co1_15-23_Chúa Giê-xu-Chủ Điểm Kinh Thánh|21:02|4|hoc-kinh-thanh-theo-sach.51-co-lo-se-ndm.04-co1-15-23-chua-gie-xu-chu-diem-kinh-thanh

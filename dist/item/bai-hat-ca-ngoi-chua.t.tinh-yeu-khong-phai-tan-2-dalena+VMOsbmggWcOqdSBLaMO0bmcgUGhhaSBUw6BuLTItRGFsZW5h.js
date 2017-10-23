@@ -1,1 +1,0 @@
-Tình Yêu Không Phai Tàn-2-Dalena|05:28|6|bai-hat-ca-ngoi-chua.t.tinh-yeu-khong-phai-tan-2-dalena

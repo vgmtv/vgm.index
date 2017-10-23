@@ -1,1 +1,0 @@
-Wildbible_|11|05-ngon-ngu-ky-hieu.hoat-hinh.wildbible|true|0

@@ -1,0 +1,1 @@
+27 Châm Ngôn26|26:41|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.27-cham-ngon26

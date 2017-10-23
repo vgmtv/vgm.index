@@ -1,1 +1,0 @@
-04_20100405_mo-t|28:40|6|phat-thanh-nguon-song.nam-2010.thang-04.phat-thanh-nguon-song-100404-100410.04-20100405-mo-t

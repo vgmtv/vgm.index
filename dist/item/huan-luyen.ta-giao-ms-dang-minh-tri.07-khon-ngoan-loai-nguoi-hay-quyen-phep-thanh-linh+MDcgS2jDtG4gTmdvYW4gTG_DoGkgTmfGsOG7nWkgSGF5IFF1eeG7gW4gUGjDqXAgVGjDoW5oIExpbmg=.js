@@ -1,0 +1,1 @@
+07 Khôn Ngoan Loài Người Hay Quyền Phép Thánh Linh|29:18|8|huan-luyen.ta-giao-ms-dang-minh-tri.07-khon-ngoan-loai-nguoi-hay-quyen-phep-thanh-linh

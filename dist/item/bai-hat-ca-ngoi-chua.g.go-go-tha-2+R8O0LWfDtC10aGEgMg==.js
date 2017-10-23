@@ -1,1 +1,0 @@
-Gô-gô-tha 2|05:03|6|bai-hat-ca-ngoi-chua.g.go-go-tha-2

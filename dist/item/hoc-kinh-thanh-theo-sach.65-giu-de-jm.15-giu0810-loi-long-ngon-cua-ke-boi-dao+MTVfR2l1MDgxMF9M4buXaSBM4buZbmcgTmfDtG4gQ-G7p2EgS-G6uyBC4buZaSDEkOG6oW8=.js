@@ -1,1 +1,0 @@
-15_Giu0810_Lỗi Lộng Ngôn Của Kẻ Bội Đạo|27:06|12|hoc-kinh-thanh-theo-sach.65-giu-de-jm.15-giu0810-loi-long-ngon-cua-ke-boi-dao

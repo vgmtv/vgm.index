@@ -1,1 +1,0 @@
-109-Gi 12:35-43-Khi Đức Chúa Trời Không Còn Nhịn Nhục|48:31|12|hoc-kinh-thanh-theo-sach.43-giang-jm.109-gi-12-35-43-khi-duc-chua-troi-khong-con-nhin-nhuc

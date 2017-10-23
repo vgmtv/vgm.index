@@ -1,1 +1,0 @@
-07. I Cô-rinh-tô|16|nghe-kinh-thanh.fcbh.07-i-co-rinh-to|false|31

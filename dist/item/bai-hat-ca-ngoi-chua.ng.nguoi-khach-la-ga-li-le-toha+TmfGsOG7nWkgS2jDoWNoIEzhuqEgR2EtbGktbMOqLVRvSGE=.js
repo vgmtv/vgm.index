@@ -1,1 +1,0 @@
-Người Khách Lạ Ga-li-lê-ToHa|05:15|6|bai-hat-ca-ngoi-chua.ng.nguoi-khach-la-ga-li-le-toha

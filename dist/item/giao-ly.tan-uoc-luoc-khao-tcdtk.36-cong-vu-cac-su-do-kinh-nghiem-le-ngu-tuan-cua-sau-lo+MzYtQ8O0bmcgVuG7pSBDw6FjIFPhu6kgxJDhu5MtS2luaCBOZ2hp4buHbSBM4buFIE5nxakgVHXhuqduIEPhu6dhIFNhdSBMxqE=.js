@@ -1,1 +1,0 @@
-36-Công Vụ Các Sứ Đồ-Kinh Nghiệm Lễ Ngũ Tuần Của Sau Lơ|31:44|12|giao-ly.tan-uoc-luoc-khao-tcdtk.36-cong-vu-cac-su-do-kinh-nghiem-le-ngu-tuan-cua-sau-lo

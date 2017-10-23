@@ -1,0 +1,1 @@
+12 ITe010410 Xác Định Người Được Chọn|31:36|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.12-ite010410-xac-dinh-nguoi-duoc-chon

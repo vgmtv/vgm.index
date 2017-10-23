@@ -1,1 +1,0 @@
-26_Xa10_0112_Sự Cứu Chuộc Y-sơ-ra-ên_P2|37:17|12|hoc-kinh-thanh-theo-sach.38-xa-cha-ri-jm.26-xa10-0112-su-cuu-chuoc-y-so-ra-en-p2

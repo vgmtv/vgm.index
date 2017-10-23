@@ -1,1 +1,0 @@
-28-ITe040103-Lời Kêu Gọi Cho Sự Thánh Khiết|24:27|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.28-ite040103-loi-keu-goi-cho-su-thanh-khiet

@@ -1,1 +1,0 @@
-06_141104_tu-t|28:45|0|phat-thanh-nguon-song.nam-2014.thang-11.phat-thanh-nguon-song-141102-141108.06-141104-tu-t

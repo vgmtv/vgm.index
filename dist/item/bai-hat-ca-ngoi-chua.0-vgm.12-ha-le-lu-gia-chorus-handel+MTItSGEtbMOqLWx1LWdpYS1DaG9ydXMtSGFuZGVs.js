@@ -1,1 +1,0 @@
-12-Ha-lê-lu-gia-Chorus-Handel|03:42|6|bai-hat-ca-ngoi-chua.0-vgm.12-ha-le-lu-gia-chorus-handel

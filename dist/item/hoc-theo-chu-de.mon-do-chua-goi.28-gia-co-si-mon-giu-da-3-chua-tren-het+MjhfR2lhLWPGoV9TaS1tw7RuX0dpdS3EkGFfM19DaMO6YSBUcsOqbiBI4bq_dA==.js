@@ -1,1 +1,0 @@
-28_Gia-cơ_Si-môn_Giu-Đa_3_Chúa Trên Hết|27:14|6|hoc-theo-chu-de.mon-do-chua-goi.28-gia-co-si-mon-giu-da-3-chua-tren-het

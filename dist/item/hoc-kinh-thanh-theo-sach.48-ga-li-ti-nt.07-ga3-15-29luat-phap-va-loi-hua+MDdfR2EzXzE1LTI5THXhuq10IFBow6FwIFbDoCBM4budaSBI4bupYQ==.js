@@ -1,1 +1,0 @@
-07_Ga3_15-29Luật Pháp Và Lời Hứa|51:20|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-nt.07-ga3-15-29luat-phap-va-loi-hua

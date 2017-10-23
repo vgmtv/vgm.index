@@ -1,1 +1,0 @@
-Ta Cùng Đi 2-Quốc Việt-Lê Vũ|03:02|6|bai-hat-ca-ngoi-chua.t.ta-cung-di-2-quoc-viet-le-vu

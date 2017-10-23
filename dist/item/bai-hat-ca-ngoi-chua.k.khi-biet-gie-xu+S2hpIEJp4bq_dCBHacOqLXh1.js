@@ -1,1 +1,0 @@
-Khi Biết Giê-xu|05:05|6|bai-hat-ca-ngoi-chua.k.khi-biet-gie-xu

@@ -1,1 +1,0 @@
-23_Gióp40_42|26:14|6|hoc-kinh-thanh-theo-sach.18-giop-thtk.23-giop40-42

@@ -1,1 +1,0 @@
-Giê-xu Nguyện Xin Chúa Sáng Soi|04:19|6|bai-hat-ca-ngoi-chua.g.gie-xu-nguyen-xin-chua-sang-soi

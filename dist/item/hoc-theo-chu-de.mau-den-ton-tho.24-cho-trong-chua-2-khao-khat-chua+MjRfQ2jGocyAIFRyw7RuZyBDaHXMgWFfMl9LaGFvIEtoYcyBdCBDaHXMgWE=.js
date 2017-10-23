@@ -1,1 +1,0 @@
-24_Chờ Trông Chúa_2_Khao Khát Chúa|27:51|6|hoc-theo-chu-de.mau-den-ton-tho.24-cho-trong-chua-2-khao-khat-chua

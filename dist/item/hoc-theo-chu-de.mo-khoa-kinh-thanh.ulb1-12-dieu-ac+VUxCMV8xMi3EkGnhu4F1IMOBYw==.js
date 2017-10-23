@@ -1,1 +1,0 @@
-ULB1_12-Điều Ác|31:57|12|hoc-theo-chu-de.mo-khoa-kinh-thanh.ulb1-12-dieu-ac

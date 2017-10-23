@@ -1,1 +1,0 @@
-Thập Tự Xưa-3-SiuYKao|04:13|6|bai-hat-ca-ngoi-chua.th.thap-tu-xua-3-siuykao

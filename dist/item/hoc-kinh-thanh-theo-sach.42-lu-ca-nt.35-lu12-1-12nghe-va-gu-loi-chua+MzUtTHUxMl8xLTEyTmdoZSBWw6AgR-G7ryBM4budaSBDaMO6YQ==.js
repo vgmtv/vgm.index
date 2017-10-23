@@ -1,1 +1,0 @@
-35-Lu12_1-12Nghe Và Gữ Lời Chúa|42:25|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.35-lu12-1-12nghe-va-gu-loi-chua

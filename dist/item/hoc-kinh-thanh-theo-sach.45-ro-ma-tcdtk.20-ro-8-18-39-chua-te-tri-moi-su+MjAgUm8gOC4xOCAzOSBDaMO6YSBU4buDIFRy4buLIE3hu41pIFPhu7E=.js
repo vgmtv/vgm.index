@@ -1,0 +1,1 @@
+20 Ro 8.18 39 Chúa Tể Trị Mọi Sự|25:45|6|hoc-kinh-thanh-theo-sach.45-ro-ma-tcdtk.20-ro-8-18-39-chua-te-tri-moi-su

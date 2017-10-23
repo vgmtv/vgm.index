@@ -1,1 +1,0 @@
-Cô-lô-se_02|03:11|31|nghe-kinh-thanh.fcbh.12-co-lo-se.co-lo-se-02

@@ -1,1 +1,1 @@
-03-Điều Răn II Ngươi Chớ Thờ Hình Tượng Cũng Đừng Quỳ Lạy & Hầu Việc Hình Tượng|13:53|7|hoc-theo-chu-de.muoi-dieu-luat-chua.03-dieu-ran-ii-nguoi-cho-tho-hinh-tuong-cung-dung-quy-lay-hau-viec-hinh-tuong
+03 Điều Răn II Ngươi Chớ Thờ Hình Tượng Cũng Đừng Quỳ Lạy & Hầu Việc Hình Tượng|13:53|7|hoc-theo-chu-de.muoi-dieu-luat-chua.03-dieu-ran-ii-nguoi-cho-tho-hinh-tuong-cung-dung-quy-lay-hau-viec-hinh-tuong

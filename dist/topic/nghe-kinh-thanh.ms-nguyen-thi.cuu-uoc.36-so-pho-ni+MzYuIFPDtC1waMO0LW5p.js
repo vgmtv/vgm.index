@@ -1,1 +1,0 @@
-36. Sô-phô-ni|3|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.36-so-pho-ni|false|31

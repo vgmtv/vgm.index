@@ -1,1 +1,0 @@
-Sao Khước Từ-LinhNang|03:31|6|bai-hat-ca-ngoi-chua.s.sao-khuoc-tu-linhnang

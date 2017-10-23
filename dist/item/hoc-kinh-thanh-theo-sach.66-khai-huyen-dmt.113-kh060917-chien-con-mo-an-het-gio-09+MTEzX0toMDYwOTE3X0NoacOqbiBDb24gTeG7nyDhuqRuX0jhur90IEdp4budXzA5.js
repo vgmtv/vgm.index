@@ -1,1 +1,0 @@
-113_Kh060917_Chiên Con Mở Ấn_Hết Giờ_09|29:47|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.113-kh060917-chien-con-mo-an-het-gio-09

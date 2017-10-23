@@ -1,1 +1,0 @@
-48-Lu17_11-19Chân Dung Người Biết Ơn Chúa|30:07|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.48-lu17-11-19chan-dung-nguoi-biet-on-chua

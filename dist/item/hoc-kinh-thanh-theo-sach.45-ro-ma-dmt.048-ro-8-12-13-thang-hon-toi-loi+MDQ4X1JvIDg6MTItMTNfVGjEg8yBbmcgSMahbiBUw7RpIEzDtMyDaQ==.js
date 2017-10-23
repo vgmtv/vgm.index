@@ -1,1 +1,0 @@
-048_Ro 8:12-13_Thắng Hơn Tôi Lỗi|01:08:08|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.048-ro-8-12-13-thang-hon-toi-loi

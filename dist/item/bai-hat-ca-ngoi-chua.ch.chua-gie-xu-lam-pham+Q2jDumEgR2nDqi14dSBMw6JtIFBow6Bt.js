@@ -1,1 +1,0 @@
-Chúa Giê-xu Lâm Phàm|05:10|6|bai-hat-ca-ngoi-chua.ch.chua-gie-xu-lam-pham

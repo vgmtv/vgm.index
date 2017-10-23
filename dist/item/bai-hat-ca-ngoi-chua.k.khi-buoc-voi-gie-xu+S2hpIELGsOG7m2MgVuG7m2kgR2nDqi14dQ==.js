@@ -1,1 +1,0 @@
-Khi Bước Với Giê-xu|05:10|6|bai-hat-ca-ngoi-chua.k.khi-buoc-voi-gie-xu

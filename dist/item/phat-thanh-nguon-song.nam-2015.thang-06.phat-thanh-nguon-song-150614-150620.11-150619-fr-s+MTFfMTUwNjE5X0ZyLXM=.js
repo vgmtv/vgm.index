@@ -1,1 +1,0 @@
-11_150619_Fr-s|28:30|0|phat-thanh-nguon-song.nam-2015.thang-06.phat-thanh-nguon-song-150614-150620.11-150619-fr-s

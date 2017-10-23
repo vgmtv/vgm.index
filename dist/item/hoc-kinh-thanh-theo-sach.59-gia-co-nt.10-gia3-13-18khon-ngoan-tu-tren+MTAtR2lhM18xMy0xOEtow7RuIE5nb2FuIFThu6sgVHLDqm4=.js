@@ -1,1 +1,0 @@
-10-Gia3_13-18Khôn Ngoan Từ Trên|50:05|6|hoc-kinh-thanh-theo-sach.59-gia-co-nt.10-gia3-13-18khon-ngoan-tu-tren

@@ -1,0 +1,1 @@
+06 20100202 tu t|29:07|6|phat-thanh-nguon-song.nam-2010.thang-02.phat-thanh-nguon-song-100131-100206.06-20100202-tu-t

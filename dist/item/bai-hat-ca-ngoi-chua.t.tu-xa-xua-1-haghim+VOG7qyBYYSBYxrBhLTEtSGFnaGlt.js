@@ -1,1 +1,0 @@
-Từ Xa Xưa-1-Haghim|04:03|6|bai-hat-ca-ngoi-chua.t.tu-xa-xua-1-haghim

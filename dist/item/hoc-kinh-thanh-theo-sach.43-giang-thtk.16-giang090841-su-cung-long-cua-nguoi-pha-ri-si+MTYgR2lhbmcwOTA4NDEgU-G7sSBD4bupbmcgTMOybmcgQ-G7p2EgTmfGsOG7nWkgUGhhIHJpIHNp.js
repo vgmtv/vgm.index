@@ -1,0 +1,1 @@
+16 Giang090841 Sự Cứng Lòng Của Người Pha ri si|29:14|6|hoc-kinh-thanh-theo-sach.43-giang-thtk.16-giang090841-su-cung-long-cua-nguoi-pha-ri-si

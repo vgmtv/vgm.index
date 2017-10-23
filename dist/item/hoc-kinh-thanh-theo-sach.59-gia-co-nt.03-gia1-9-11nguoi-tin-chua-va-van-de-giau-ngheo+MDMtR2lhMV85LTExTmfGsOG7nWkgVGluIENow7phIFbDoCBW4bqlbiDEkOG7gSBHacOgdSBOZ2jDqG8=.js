@@ -1,1 +1,0 @@
-03-Gia1_9-11Người Tin Chúa Và Vấn Đề Giàu Nghèo|46:57|6|hoc-kinh-thanh-theo-sach.59-gia-co-nt.03-gia1-9-11nguoi-tin-chua-va-van-de-giau-ngheo

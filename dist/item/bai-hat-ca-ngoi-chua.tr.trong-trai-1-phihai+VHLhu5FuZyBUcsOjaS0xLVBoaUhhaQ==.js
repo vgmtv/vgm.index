@@ -1,1 +1,0 @@
-Trống Trãi-1-PhiHai|03:34|6|bai-hat-ca-ngoi-chua.tr.trong-trai-1-phihai

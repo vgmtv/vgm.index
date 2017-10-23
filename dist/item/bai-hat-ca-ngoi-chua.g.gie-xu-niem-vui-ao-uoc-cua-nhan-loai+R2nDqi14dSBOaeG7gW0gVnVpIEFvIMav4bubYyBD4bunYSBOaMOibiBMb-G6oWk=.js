@@ -1,1 +1,0 @@
-Giê-xu Niềm Vui Ao Ước Của Nhân Loại|08:27|6|bai-hat-ca-ngoi-chua.g.gie-xu-niem-vui-ao-uoc-cua-nhan-loai

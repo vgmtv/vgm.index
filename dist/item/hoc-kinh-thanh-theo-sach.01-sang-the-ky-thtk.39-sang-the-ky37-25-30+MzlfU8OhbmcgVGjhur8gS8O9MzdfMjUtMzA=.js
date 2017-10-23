@@ -1,1 +1,0 @@
-39_Sáng Thế Ký37_25-30|28:02|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.39-sang-the-ky37-25-30

@@ -1,0 +1,1 @@
+04 Ga2 1 14Cơ Đốc Nhân Và Tha Nhân|45:05|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-nt.04-ga2-1-14co-doc-nhan-va-tha-nhan

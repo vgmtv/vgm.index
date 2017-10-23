@@ -1,1 +1,0 @@
-Không Chỗ Trong Quán 2 - TC 63|05:34|6|bai-hat-ca-ngoi-chua.k.khong-cho-trong-quan-2-tc-63

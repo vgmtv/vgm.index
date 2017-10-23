@@ -1,1 +1,0 @@
-08__Andrew_1_Tư Tưởng Cao Quá Lẻ|27:53|6|hoc-theo-chu-de.mon-do-chua-goi.08-andrew-1-tu-tuong-cao-qua-le

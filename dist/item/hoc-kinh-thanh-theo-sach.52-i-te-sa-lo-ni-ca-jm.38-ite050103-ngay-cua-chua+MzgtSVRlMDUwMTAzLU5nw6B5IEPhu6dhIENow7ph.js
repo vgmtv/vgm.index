@@ -1,1 +1,0 @@
-38-ITe050103-Ngày Của Chúa|27:38|12|hoc-kinh-thanh-theo-sach.52-i-te-sa-lo-ni-ca-jm.38-ite050103-ngay-cua-chua

@@ -1,0 +1,1 @@
+Gia Cốp|2|nhan-vat.gia-cop|false|6

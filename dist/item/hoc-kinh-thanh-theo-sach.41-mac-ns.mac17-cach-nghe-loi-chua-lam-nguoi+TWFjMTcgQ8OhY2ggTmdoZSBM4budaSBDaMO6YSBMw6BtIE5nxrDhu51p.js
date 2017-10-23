@@ -1,0 +1,1 @@
+Mac17 Cách Nghe Lời Chúa Làm Người|24:21|6|hoc-kinh-thanh-theo-sach.41-mac-ns.mac17-cach-nghe-loi-chua-lam-nguoi

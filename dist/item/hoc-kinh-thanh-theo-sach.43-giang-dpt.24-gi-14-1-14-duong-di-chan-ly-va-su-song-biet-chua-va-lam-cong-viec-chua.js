@@ -1,1 +1,1 @@
-24-Gi 14:1-14_Đường Đi Chân Lý và Sự Sống - Biết Chúa Và Làm Công Việc Chúa|22:40|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.24-gi-14-1-14-duong-di-chan-ly-va-su-song-biet-chua-va-lam-cong-viec-chua
+24 Gi 14:1 14 Đường Đi Chân Lý và Sự Sống   Biết Chúa Và Làm Công Việc Chúa|22:40|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.24-gi-14-1-14-duong-di-chan-ly-va-su-song-biet-chua-va-lam-cong-viec-chua

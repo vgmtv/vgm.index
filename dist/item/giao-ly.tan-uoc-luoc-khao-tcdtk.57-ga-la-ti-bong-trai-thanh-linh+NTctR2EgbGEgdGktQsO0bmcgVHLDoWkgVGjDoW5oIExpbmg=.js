@@ -1,1 +1,0 @@
-57-Ga la ti-Bông Trái Thánh Linh|30:00|12|giao-ly.tan-uoc-luoc-khao-tcdtk.57-ga-la-ti-bong-trai-thanh-linh

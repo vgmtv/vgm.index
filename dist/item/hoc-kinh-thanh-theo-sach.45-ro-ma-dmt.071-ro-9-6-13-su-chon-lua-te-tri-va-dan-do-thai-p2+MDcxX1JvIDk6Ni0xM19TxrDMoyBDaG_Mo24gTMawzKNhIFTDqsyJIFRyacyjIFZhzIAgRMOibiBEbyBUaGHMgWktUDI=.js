@@ -1,1 +1,0 @@
-071_Ro 9:6-13_Sự Chọn Lựa Tể Trị Và Dân Do Thái-P2|55:03|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.071-ro-9-6-13-su-chon-lua-te-tri-va-dan-do-thai-p2

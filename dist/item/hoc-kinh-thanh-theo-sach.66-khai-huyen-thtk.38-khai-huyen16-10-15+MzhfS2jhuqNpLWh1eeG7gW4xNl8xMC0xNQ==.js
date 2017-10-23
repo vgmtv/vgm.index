@@ -1,1 +1,0 @@
-38_Khải-huyền16_10-15|29:23|6|hoc-kinh-thanh-theo-sach.66-khai-huyen-thtk.38-khai-huyen16-10-15

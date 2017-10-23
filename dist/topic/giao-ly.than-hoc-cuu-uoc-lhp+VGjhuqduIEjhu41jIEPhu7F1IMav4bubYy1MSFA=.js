@@ -1,1 +1,0 @@
-Thần Học Cựu Ước-LHP|7|giao-ly.than-hoc-cuu-uoc-lhp|false|12

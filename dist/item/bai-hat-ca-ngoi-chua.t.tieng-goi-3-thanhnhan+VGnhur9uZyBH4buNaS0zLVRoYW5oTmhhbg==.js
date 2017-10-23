@@ -1,1 +1,0 @@
-Tiếng Gọi-3-ThanhNhan|04:25|6|bai-hat-ca-ngoi-chua.t.tieng-goi-3-thanhnhan

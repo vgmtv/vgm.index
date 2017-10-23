@@ -1,1 +1,0 @@
-04142017_Trên Thập Giá|33:09|0|01-bai-giang.muc-su-nguyen-thi-2009-2017.nam-2017.04142017-tren-thap-gia

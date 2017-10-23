@@ -1,1 +1,0 @@
-083-Gi 8:48-59-Chúa Giê-xu Chọc Giận Kẻ Thù|22:14|12|hoc-kinh-thanh-theo-sach.43-giang-jm.083-gi-8-48-59-chua-gie-xu-choc-gian-ke-thu

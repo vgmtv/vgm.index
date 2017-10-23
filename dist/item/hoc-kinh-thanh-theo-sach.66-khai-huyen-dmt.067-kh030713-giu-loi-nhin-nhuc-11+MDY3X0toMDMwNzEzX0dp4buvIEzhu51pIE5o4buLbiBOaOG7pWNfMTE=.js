@@ -1,1 +1,0 @@
-067_Kh030713_Giữ Lời Nhịn Nhục_11|31:00|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.067-kh030713-giu-loi-nhin-nhuc-11

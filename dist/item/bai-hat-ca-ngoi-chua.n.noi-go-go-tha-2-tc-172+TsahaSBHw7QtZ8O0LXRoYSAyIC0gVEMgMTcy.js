@@ -1,1 +1,0 @@
-Nơi Gô-gô-tha 2 - TC 172|03:08|6|bai-hat-ca-ngoi-chua.n.noi-go-go-tha-2-tc-172

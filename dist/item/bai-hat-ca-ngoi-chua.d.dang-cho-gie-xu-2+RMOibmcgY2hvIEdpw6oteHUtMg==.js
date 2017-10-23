@@ -1,1 +1,0 @@
-Dâng cho Giê-xu-2|01:38|0|bai-hat-ca-ngoi-chua.d.dang-cho-gie-xu-2

@@ -1,1 +1,0 @@
-28-Vinh Diệu Tôn Quý-Chorus|03:12|6|bai-hat-ca-ngoi-chua.0-vgm.28-vinh-dieu-ton-quy-chorus

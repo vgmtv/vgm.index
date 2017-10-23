@@ -1,1 +1,0 @@
-Ngài Yêu Tôi Rất Thiết Tha-KimTai|05:25|6|bai-hat-ca-ngoi-chua.ng.ngai-yeu-toi-rat-thiet-tha-kimtai

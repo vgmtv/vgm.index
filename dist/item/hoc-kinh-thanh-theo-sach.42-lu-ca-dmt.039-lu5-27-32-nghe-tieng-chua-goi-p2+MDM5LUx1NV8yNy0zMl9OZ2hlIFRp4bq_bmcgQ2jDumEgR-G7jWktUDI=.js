@@ -1,1 +1,0 @@
-039-Lu5_27-32_Nghe Tiếng Chúa Gọi-P2|22:44|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.039-lu5-27-32-nghe-tieng-chua-goi-p2

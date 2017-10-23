@@ -1,1 +1,0 @@
-Có Giê-xu Dẫn Đưa Luôn Đời Tôi |02:36|6|bai-hat-ca-ngoi-chua.c.co-gie-xu-dan-dua-luon-doi-toi

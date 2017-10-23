@@ -1,1 +1,0 @@
-Ga16_Trái Thánh Linh_Thành Tín Hòa Nhã Tự Chủ|39:14|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga16-trai-thanh-linh-thanh-tin-hoa-nha-tu-chu

@@ -1,1 +1,0 @@
-019_Ro 2:17-29_Nền Tảng Sai Trật-P2|55:27|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.019-ro-2-17-29-nen-tang-sai-trat-p2

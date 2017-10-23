@@ -1,1 +1,0 @@
-18_Châm Ngôn17|25:30|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.18-cham-ngon17

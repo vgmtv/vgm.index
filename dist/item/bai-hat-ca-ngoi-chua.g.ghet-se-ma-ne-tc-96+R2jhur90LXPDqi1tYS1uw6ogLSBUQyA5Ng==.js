@@ -1,1 +1,0 @@
-Ghết-sê-ma-nê - TC 96|03:00|6|bai-hat-ca-ngoi-chua.g.ghet-se-ma-ne-tc-96

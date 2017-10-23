@@ -1,0 +1,1 @@
+14 Châm Ngôn13|26:11|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.14-cham-ngon13

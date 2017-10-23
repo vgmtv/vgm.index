@@ -1,1 +1,0 @@
-Thi Thiên_056|01:52|31|nghe-kinh-thanh.ms-nguyen-thi.cuu-uoc.19-thi-thien.thi-thien-056

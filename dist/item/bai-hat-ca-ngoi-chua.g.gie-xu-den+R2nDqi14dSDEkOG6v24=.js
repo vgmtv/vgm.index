@@ -1,1 +1,0 @@
-Giê-xu Đến|05:23|6|bai-hat-ca-ngoi-chua.g.gie-xu-den

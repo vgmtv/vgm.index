@@ -1,1 +1,0 @@
-An-ne Tân Ước 1|17:23|6|nhan-vat.an-ne-tan-uoc.an-ne-tan-uoc-1

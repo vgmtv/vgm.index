@@ -1,1 +1,0 @@
-05-Nền Tảng Kinh Thánh 01-Không Theo Ý Riêng|29:57|14|hoc-theo-chu-de.phan-bien-duc-tin.05-nen-tang-kinh-thanh-01-khong-theo-y-rieng

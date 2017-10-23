@@ -1,1 +1,0 @@
-045-Lu6_12-15_Môn Đồ Chúa Gọi-P1|35:06|12|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.045-lu6-12-15-mon-do-chua-goi-p1

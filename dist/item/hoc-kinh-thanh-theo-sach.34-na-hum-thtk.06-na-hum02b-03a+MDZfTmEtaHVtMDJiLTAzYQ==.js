@@ -1,1 +1,0 @@
-06_Na-hum02b-03a|27:02|6|hoc-kinh-thanh-theo-sach.34-na-hum-thtk.06-na-hum02b-03a

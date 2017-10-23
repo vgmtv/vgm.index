@@ -1,1 +1,1 @@
-019_1Ti 3:14-16__Thuộc Về Đại Gia Đình_02_Sứ Mệnh Và Sứ Điệp Của Đại Gia Đình_1|28:11|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.019-1ti-3-14-16-thuoc-ve-dai-gia-dinh-02-su-menh-va-su-diep-cua-dai-gia-dinh-1
+019 1Ti 3:14 16  Thuộc Về Đại Gia Đình 02 Sứ Mệnh Và Sứ Điệp Của Đại Gia Đình 1|28:11|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.019-1ti-3-14-16-thuoc-ve-dai-gia-dinh-02-su-menh-va-su-diep-cua-dai-gia-dinh-1

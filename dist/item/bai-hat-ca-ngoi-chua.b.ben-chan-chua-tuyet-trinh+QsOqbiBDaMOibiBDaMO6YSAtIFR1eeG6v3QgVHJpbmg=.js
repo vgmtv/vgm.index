@@ -1,1 +1,0 @@
-Bên Chân Chúa - Tuyết Trinh|04:45|6|bai-hat-ca-ngoi-chua.b.ben-chan-chua-tuyet-trinh

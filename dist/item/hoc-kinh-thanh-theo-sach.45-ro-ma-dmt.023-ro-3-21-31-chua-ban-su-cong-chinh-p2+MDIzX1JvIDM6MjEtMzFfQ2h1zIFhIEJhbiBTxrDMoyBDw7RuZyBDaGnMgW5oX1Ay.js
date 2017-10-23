@@ -1,1 +1,0 @@
-023_Ro 3:21-31_Chúa Ban Sự Công Chính_P2|01:04:36|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.023-ro-3-21-31-chua-ban-su-cong-chinh-p2

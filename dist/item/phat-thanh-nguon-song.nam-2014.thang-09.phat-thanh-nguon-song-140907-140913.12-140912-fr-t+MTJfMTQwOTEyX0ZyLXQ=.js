@@ -1,1 +1,0 @@
-12_140912_Fr-t|29:26|0|phat-thanh-nguon-song.nam-2014.thang-09.phat-thanh-nguon-song-140907-140913.12-140912-fr-t

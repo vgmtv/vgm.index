@@ -1,1 +1,0 @@
-07_ITi6_6-10va17-19Giàu Hay Nghèo|47:42|6|hoc-kinh-thanh-theo-sach.54-i-ti-mo-the-nt.07-iti6-6-10va17-19giau-hay-ngheo

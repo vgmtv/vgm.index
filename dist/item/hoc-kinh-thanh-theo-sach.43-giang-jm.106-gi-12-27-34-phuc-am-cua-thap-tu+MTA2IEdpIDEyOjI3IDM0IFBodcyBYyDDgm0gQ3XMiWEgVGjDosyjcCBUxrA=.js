@@ -1,0 +1,1 @@
+106 Gi 12:27 34 Phúc Âm Của Thập Tư|36:46|12|hoc-kinh-thanh-theo-sach.43-giang-jm.106-gi-12-27-34-phuc-am-cua-thap-tu

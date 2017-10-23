@@ -1,1 +1,0 @@
-Phi-líp_06_Được Sáng Trong Thế Gian-Tâm Tình Của Ti-mô-thê|24:52|6|hoc-kinh-thanh-theo-sach.50-phi-lip-ns.phi-lip-06-duoc-sang-trong-the-gian-tam-tinh-cua-ti-mo-the

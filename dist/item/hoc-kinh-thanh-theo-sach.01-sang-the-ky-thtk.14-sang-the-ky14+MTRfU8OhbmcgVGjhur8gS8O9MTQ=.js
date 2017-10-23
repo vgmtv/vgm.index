@@ -1,1 +1,0 @@
-14_Sáng Thế Ký14|28:06|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.14-sang-the-ky14

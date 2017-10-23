@@ -1,1 +1,0 @@
-02-Lòng Sốt Sắng Trong Hội Thánh|40:06|6|hoc-theo-chu-de.dang-christ-phan-xet-hoi-thanh.02-long-sot-sang-trong-hoi-thanh

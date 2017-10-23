@@ -1,1 +1,0 @@
-Không Ai Ngoài Giê-xu 2|03:24|6|bai-hat-ca-ngoi-chua.k.khong-ai-ngoai-gie-xu-2

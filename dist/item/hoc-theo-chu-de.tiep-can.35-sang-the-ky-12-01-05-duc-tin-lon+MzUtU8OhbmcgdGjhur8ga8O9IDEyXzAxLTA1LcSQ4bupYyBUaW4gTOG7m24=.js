@@ -1,1 +1,0 @@
-35-Sáng thế ký 12_01-05-Đức Tin Lớn|28:06|6|hoc-theo-chu-de.tiep-can.35-sang-the-ky-12-01-05-duc-tin-lon

@@ -1,1 +1,0 @@
-2Co Bai13_Tin Vào Lời Hứa Của Chúa_Chứng Nhân Vì Kính Sợ Chúa-050612|25:13|6|hoc-kinh-thanh-theo-sach.47-2co-rinh-to-ns.2co-bai13-tin-vao-loi-hua-cua-chua-chung-nhan-vi-kinh-so-chua-050612

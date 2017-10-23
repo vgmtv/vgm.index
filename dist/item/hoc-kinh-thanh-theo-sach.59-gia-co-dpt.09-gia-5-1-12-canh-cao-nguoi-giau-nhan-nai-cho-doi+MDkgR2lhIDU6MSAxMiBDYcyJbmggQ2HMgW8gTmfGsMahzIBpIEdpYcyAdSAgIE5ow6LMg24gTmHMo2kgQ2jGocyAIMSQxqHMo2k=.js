@@ -1,0 +1,1 @@
+09 Gia 5:1 12 Cảnh Cáo Người Giàu   Nhẫn Nại Chờ Đợi|28:29|0|hoc-kinh-thanh-theo-sach.59-gia-co-dpt.09-gia-5-1-12-canh-cao-nguoi-giau-nhan-nai-cho-doi

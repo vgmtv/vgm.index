@@ -1,0 +1,1 @@
+025 Gi 3:11 21 Quyền Tể Trị Của Đức Chúa Trời Và Trách Nhiệm Con Người|31:06|12|hoc-kinh-thanh-theo-sach.43-giang-jm.025-gi-3-11-21-quyen-te-tri-cua-duc-chua-troi-va-trach-nhiem-con-nguoi

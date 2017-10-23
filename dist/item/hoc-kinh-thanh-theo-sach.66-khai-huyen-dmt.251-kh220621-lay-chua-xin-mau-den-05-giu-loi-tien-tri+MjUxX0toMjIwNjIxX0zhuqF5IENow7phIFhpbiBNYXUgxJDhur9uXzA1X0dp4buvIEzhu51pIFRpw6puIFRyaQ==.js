@@ -1,1 +1,0 @@
-251_Kh220621_Lạy Chúa Xin Mau Đến_05_Giữ Lời Tiên Tri|28:30|12|hoc-kinh-thanh-theo-sach.66-khai-huyen-dmt.251-kh220621-lay-chua-xin-mau-den-05-giu-loi-tien-tri

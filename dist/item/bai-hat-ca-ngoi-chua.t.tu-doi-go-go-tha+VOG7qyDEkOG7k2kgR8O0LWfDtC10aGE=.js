@@ -1,1 +1,0 @@
-Từ Đồi Gô-gô-tha|05:08|6|bai-hat-ca-ngoi-chua.t.tu-doi-go-go-tha

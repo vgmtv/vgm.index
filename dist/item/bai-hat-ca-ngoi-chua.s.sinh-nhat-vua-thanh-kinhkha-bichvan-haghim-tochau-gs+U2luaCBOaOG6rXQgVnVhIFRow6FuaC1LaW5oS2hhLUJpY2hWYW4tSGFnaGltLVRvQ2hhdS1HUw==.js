@@ -1,1 +1,0 @@
-Sinh Nhật Vua Thánh-KinhKha-BichVan-Haghim-ToChau-GS|03:18|6|bai-hat-ca-ngoi-chua.s.sinh-nhat-vua-thanh-kinhkha-bichvan-haghim-tochau-gs

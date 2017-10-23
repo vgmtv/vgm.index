@@ -1,1 +1,0 @@
-Giê-xu Là Tiếng Nói|02:40|6|bai-hat-ca-ngoi-chua.g.gie-xu-la-tieng-noi

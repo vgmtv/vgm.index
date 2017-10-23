@@ -1,1 +1,0 @@
-Tâm Tôi-2|05:39|6|bai-hat-ca-ngoi-chua.t.tam-toi-2

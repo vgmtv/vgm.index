@@ -1,1 +1,0 @@
-Trống Trãi-2-ThienBao|04:29|6|bai-hat-ca-ngoi-chua.tr.trong-trai-2-thienbao

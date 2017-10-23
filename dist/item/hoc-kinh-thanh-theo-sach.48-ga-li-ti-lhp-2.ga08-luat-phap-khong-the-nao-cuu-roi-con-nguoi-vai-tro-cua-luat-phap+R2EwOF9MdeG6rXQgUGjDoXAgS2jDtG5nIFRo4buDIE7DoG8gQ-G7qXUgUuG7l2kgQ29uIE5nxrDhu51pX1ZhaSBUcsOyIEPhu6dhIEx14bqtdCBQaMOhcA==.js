@@ -1,1 +1,0 @@
-Ga08_Luật Pháp Không Thể Nào Cứu Rỗi Con Người_Vai Trò Của Luật Pháp|23:18|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga08-luat-phap-khong-the-nao-cuu-roi-con-nguoi-vai-tro-cua-luat-phap

@@ -1,0 +1,1 @@
+Ga17 Kết Luận Bức Thư Khiêm Tốn|26:42|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga17-ket-luan-buc-thu-khiem-ton

@@ -1,1 +1,0 @@
-Một đời chìm trong Chân lý-Dalila|05:24|0|bai-hat-ca-ngoi-chua.m.mot-doi-chim-trong-chan-ly-dalila

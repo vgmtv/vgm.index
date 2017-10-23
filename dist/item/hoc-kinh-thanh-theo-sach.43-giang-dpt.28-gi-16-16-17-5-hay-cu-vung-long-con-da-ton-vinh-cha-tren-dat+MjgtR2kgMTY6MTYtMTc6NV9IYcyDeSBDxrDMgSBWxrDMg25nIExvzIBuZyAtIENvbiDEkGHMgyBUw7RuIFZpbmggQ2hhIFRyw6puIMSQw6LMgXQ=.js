@@ -1,1 +1,0 @@
-28-Gi 16:16-17:5_Hãy Cứ Vững Lòng - Con Đã Tôn Vinh Cha Trên Đất|32:03|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.28-gi-16-16-17-5-hay-cu-vung-long-con-da-ton-vinh-cha-tren-dat

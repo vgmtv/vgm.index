@@ -1,1 +1,0 @@
-17_Giu1113_Hình Ảnh Kẻ Bội Đạo|25:56|12|hoc-kinh-thanh-theo-sach.65-giu-de-jm.17-giu1113-hinh-anh-ke-boi-dao

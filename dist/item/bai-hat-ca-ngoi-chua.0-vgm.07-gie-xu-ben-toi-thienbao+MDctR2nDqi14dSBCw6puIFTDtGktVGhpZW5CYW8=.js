@@ -1,1 +1,0 @@
-07-Giê-xu Bên Tôi-ThienBao|04:57|6|bai-hat-ca-ngoi-chua.0-vgm.07-gie-xu-ben-toi-thienbao

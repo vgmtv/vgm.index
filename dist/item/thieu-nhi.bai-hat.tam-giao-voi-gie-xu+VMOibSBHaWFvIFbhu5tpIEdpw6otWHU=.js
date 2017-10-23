@@ -1,1 +1,0 @@
-Tâm Giao Với Giê-Xu|04:10|16|thieu-nhi.bai-hat.tam-giao-voi-gie-xu

@@ -1,0 +1,1 @@
+Ga07 Tự Do Và Nô Lệ Đức Chúa Trời Của Áp ra ham|25:43|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga07-tu-do-va-no-le-duc-chua-troi-cua-ap-ra-ham

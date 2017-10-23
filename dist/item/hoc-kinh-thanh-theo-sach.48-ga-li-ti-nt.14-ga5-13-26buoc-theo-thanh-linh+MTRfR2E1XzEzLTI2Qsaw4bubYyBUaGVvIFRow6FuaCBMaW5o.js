@@ -1,1 +1,0 @@
-14_Ga5_13-26Bước Theo Thánh Linh|46:46|6|hoc-kinh-thanh-theo-sach.48-ga-li-ti-nt.14-ga5-13-26buoc-theo-thanh-linh

@@ -1,1 +1,0 @@
-06_20100810_tu-t|29:04|6|phat-thanh-nguon-song.nam-2010.thang-08.phat-thanh-nguon-song-100808-100814.06-20100810-tu-t

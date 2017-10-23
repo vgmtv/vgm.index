@@ -1,0 +1,1 @@
+13 Gi 7:1 53 Xét Đoán Theo Lẽ Công Bình   Tiếp Nhận Hay Khước Từ|29:56|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.13-gi-7-1-53-xet-doan-theo-le-cong-binh-tiep-nhan-hay-khuoc-tu

@@ -1,1 +1,0 @@
-08-Sáng Thế Ký-Araham Đức Tin|28:58|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.08-sang-the-ky-araham-duc-tin

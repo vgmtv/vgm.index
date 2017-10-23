@@ -1,1 +1,0 @@
-31_Châm Ngôn31|27:26|6|hoc-kinh-thanh-theo-sach.20-cham-ngon-thtk.31-cham-ngon31

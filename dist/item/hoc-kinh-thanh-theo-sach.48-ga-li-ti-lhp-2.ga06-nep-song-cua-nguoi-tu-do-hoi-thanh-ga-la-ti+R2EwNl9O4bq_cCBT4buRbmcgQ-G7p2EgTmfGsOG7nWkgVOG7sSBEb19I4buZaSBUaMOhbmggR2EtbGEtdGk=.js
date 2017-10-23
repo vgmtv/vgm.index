@@ -1,1 +1,0 @@
-Ga06_Nếp Sống Của Người Tự Do_Hội Thánh Ga-la-ti|25:51|4|hoc-kinh-thanh-theo-sach.48-ga-li-ti-lhp-2.ga06-nep-song-cua-nguoi-tu-do-hoi-thanh-ga-la-ti

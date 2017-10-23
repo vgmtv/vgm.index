@@ -1,1 +1,0 @@
-03_Bắt Đầu Thờ Phượng_3_Đáp Ứng Với Mặc Khải|26:37|6|hoc-theo-chu-de.mau-den-ton-tho.03-bat-dau-tho-phuong-3-dap-ung-voi-mac-khai

@@ -1,1 +1,0 @@
-67-I Cô rinh tô-Điều Ưu Tiên Của Hội Thánh|32:01|12|giao-ly.tan-uoc-luoc-khao-tcdtk.67-i-co-rinh-to-dieu-uu-tien-cua-hoi-thanh

@@ -1,0 +1,1 @@
+79 Giô na Sự Tức Giận Của Giô Na Và Sự Dạy Dỗ Của Chúa|29:21|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.79-gio-na-su-tuc-gian-cua-gio-na-va-su-day-do-cua-chua

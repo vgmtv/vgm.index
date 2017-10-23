@@ -1,1 +1,0 @@
-Chúa Giê-xu Giải Thích Câu Chuyện Người Gieo Giống|01:39|0|03-hoat-hinh.hoat-hinh-2d.hoat-hinh-2d-bo.wild-bible.chua-gie-xu-giai-thich-cau-chuyen-nguoi-gieo-giong

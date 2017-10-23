@@ -1,1 +1,0 @@
-Bước Với Giê-Xu 2-Nenita|04:13|6|bai-hat-ca-ngoi-chua.b.buoc-voi-gie-xu-2-nenita

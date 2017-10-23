@@ -1,1 +1,0 @@
-018_Ro 2:17-29_Nền Tảng Giả Tạo-P1|59:41|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.018-ro-2-17-29-nen-tang-gia-tao-p1

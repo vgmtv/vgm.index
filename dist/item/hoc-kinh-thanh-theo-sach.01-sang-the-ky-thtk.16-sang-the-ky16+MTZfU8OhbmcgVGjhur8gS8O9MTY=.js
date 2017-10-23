@@ -1,1 +1,0 @@
-16_Sáng Thế Ký16|25:11|6|hoc-kinh-thanh-theo-sach.01-sang-the-ky-thtk.16-sang-the-ky16

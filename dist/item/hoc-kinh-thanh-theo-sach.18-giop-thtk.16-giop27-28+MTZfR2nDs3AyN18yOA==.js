@@ -1,1 +1,0 @@
-16_Gióp27_28|26:52|6|hoc-kinh-thanh-theo-sach.18-giop-thtk.16-giop27-28

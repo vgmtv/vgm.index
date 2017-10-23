@@ -1,0 +1,1 @@
+12 Lu05 27 39Người Theo Chúa|48:21|6|hoc-kinh-thanh-theo-sach.42-lu-ca-nt.12-lu05-27-39nguoi-theo-chua

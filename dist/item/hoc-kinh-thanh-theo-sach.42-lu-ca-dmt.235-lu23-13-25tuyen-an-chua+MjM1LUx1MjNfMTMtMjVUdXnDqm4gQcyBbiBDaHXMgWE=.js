@@ -1,1 +1,0 @@
-235-Lu23_13-25Tuyên Án Chúa|57:39|0|hoc-kinh-thanh-theo-sach.42-lu-ca-dmt.235-lu23-13-25tuyen-an-chua

@@ -1,1 +1,0 @@
-Sự Sáng Rạng Soi-BichVan|03:40|6|bai-hat-ca-ngoi-chua.s.su-sang-rang-soi-bichvan

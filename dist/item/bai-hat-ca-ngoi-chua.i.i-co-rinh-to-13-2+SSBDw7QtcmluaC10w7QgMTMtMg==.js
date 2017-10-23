@@ -1,1 +1,0 @@
-I Cô-rinh-tô 13-2|06:18|6|bai-hat-ca-ngoi-chua.i.i-co-rinh-to-13-2

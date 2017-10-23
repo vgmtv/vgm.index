@@ -1,1 +1,0 @@
-19_Quản Gia Tiền Bạc Khôn Ngoan_2_Chúa Là Chủ|34:05|12|hoc-kinh-thanh-theo-sach.20-cham-ngon-dmt.19-quan-gia-tien-bac-khon-ngoan-2-chua-la-chu

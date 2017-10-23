@@ -1,1 +1,0 @@
-Giê-xu Con Suy Tôn Ngài|03:11|6|bai-hat-ca-ngoi-chua.g.gie-xu-con-suy-ton-ngai

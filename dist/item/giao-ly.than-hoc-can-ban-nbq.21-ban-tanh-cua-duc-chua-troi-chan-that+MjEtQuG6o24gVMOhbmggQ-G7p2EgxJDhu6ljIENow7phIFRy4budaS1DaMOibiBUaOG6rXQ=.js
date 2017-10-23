@@ -1,1 +1,0 @@
-21-Bản Tánh Của Đức Chúa Trời-Chân Thật|21:30|12|giao-ly.than-hoc-can-ban-nbq.21-ban-tanh-cua-duc-chua-troi-chan-that

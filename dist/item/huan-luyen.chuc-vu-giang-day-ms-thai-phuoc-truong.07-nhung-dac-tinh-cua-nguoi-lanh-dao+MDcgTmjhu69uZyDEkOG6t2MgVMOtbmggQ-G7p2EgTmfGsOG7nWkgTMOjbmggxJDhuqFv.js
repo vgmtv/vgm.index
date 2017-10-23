@@ -1,0 +1,1 @@
+07 Những Đặc Tính Của Người Lãnh Đạo|34:05|8|huan-luyen.chuc-vu-giang-day-ms-thai-phuoc-truong.07-nhung-dac-tinh-cua-nguoi-lanh-dao

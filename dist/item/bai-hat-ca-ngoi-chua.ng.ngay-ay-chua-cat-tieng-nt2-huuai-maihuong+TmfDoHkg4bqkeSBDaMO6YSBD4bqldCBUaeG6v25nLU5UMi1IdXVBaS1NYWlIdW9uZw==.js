@@ -1,1 +1,0 @@
-Ngày Ấy Chúa Cất Tiếng-NT2-HuuAi-MaiHuong|03:37|6|bai-hat-ca-ngoi-chua.ng.ngay-ay-chua-cat-tieng-nt2-huuai-maihuong

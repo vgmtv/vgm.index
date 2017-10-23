@@ -1,1 +1,0 @@
-Gió Thánh Linh-2-BichHanh|04:35|0|bai-hat-ca-ngoi-chua.g.gio-thanh-linh-2-bichhanh

@@ -1,1 +1,0 @@
-02 Gi 17:6-12_Thông Công Với Đấng Christ-P1|01:07:20|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.phuc-am-giang-ms-dang-minh-tri.02-gi-17-6-12-thong-cong-voi-dang-christ-p1

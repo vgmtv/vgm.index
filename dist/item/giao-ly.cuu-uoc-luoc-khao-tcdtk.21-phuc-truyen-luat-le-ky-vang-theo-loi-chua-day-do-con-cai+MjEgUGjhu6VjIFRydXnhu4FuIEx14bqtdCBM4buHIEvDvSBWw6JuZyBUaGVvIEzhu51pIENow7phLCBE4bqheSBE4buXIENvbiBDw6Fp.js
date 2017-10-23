@@ -1,0 +1,1 @@
+21 Phục Truyền Luật Lệ Ký Vâng Theo Lời Chúa, Dạy Dỗ Con Cái|27:29|12|giao-ly.cuu-uoc-luoc-khao-tcdtk.21-phuc-truyen-luat-le-ky-vang-theo-loi-chua-day-do-con-cai

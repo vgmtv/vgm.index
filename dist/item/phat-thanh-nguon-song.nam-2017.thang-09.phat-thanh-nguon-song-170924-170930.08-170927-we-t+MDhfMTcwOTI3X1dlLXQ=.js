@@ -1,1 +1,0 @@
-08_170927_We-t|28:32|0|phat-thanh-nguon-song.nam-2017.thang-09.phat-thanh-nguon-song-170924-170930.08-170927-we-t

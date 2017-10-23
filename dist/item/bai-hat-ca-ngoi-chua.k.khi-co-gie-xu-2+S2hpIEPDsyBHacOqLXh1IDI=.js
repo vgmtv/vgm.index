@@ -1,1 +1,0 @@
-Khi Có Giê-xu 2|03:25|6|bai-hat-ca-ngoi-chua.k.khi-co-gie-xu-2

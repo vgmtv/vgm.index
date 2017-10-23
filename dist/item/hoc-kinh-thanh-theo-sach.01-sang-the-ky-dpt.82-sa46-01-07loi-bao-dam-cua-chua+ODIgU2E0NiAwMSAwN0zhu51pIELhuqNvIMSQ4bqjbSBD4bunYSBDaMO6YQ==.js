@@ -1,0 +1,1 @@
+82 Sa46 01 07Lời Bảo Đảm Của Chúa|19:22|18|hoc-kinh-thanh-theo-sach.01-sang-the-ky-dpt.82-sa46-01-07loi-bao-dam-cua-chua

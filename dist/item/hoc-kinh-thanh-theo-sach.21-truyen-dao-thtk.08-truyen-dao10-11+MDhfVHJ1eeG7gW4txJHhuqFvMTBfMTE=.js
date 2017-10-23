@@ -1,1 +1,0 @@
-08_Truyền-đạo10_11|26:23|6|hoc-kinh-thanh-theo-sach.21-truyen-dao-thtk.08-truyen-dao10-11

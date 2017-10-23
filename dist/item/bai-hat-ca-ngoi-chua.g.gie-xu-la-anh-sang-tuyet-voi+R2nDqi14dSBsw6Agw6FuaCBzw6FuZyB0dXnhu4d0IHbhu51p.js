@@ -1,1 +1,0 @@
-Giê-xu là ánh sáng tuyệt vời|03:45|0|bai-hat-ca-ngoi-chua.g.gie-xu-la-anh-sang-tuyet-voi
