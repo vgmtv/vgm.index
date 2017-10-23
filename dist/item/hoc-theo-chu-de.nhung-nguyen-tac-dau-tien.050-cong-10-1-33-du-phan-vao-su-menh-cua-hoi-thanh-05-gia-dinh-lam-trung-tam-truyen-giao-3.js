@@ -1,1 +1,1 @@
-050 Cong 10:1 33 Dự Phần Vào Sứ Mệnh Của Hội Thánh 05 Gia Đình Làm Trung Tâm Truyền Giáo 3|28:16|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.050-cong-10-1-33-du-phan-vao-su-menh-cua-hoi-thanh-05-gia-dinh-lam-trung-tam-truyen-giao-3
+050 Cong 10:1 33 Dự Phần Vào Sứ Mệnh Của Hội Thánh 05 Gia Đình Làm Trung Tâm Truyền Giáo 3|28:16|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.050-cong-10-1-33-du-phan-vao-su-menh-cua-hoi-thanh-05-gia-dinh-lam-trung-tam-truyen-giao-3

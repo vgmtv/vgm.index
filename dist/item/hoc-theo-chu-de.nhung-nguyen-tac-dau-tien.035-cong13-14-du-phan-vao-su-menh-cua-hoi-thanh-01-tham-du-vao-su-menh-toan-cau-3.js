@@ -1,1 +1,1 @@
-035 Cong13 14 Dự Phần Vào Sứ Mệnh Của Hội Thánh 01 Tham Dự Vào Sứ Mệnh Toàn Cầu 3|26:29|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.035-cong13-14-du-phan-vao-su-menh-cua-hoi-thanh-01-tham-du-vao-su-menh-toan-cau-3
+035 Cong13 14 Dự Phần Vào Sứ Mệnh Của Hội Thánh 01 Tham Dự Vào Sứ Mệnh Toàn Cầu 3|26:29|0|hoc-theo-chu-de.nhung-nguyen-tac-dau-tien.035-cong13-14-du-phan-vao-su-menh-cua-hoi-thanh-01-tham-du-vao-su-menh-toan-cau-3

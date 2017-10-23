@@ -1,1 +1,0 @@
-4 Con Người Và Khủng Long|36:02|0|02-khoa-hoc-va-niem-tin.01-su-khoi-dau.4-con-nguoi-va-khung-long

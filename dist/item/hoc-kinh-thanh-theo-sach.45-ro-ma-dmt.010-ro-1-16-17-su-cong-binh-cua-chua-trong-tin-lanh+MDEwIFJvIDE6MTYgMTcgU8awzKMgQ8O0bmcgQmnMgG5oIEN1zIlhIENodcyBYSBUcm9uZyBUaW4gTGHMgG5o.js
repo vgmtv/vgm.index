@@ -1,1 +1,0 @@
-010 Ro 1:16 17 Sự Công Bình Của Chúa Trong Tin Lành|01:03:27|12|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.010-ro-1-16-17-su-cong-binh-cua-chua-trong-tin-lanh

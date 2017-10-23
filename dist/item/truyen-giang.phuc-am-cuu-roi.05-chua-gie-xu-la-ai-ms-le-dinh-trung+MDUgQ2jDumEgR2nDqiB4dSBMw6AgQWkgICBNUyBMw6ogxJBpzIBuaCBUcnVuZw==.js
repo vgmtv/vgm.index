@@ -1,1 +1,0 @@
-05 Chúa Giê xu Là Ai   MS Lê Đình Trung|45:49|7|truyen-giang.phuc-am-cuu-roi.05-chua-gie-xu-la-ai-ms-le-dinh-trung

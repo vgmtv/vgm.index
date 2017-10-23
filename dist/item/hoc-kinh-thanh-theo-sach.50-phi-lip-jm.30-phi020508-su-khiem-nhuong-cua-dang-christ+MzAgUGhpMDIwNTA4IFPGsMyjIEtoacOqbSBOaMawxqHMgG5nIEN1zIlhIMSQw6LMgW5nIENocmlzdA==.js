@@ -1,1 +1,0 @@
-30 Phi020508 Sự Khiêm Nhường Của Đấng Christ|26:32|12|hoc-kinh-thanh-theo-sach.50-phi-lip-jm.30-phi020508-su-khiem-nhuong-cua-dang-christ

@@ -1,1 +1,0 @@
-ULB4 07 Bản Tánh|34:50|0|hoc-theo-chu-de.mo-khoa-kinh-thanh.ulb4-07-ban-tanh

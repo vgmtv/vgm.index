@@ -1,0 +1,1 @@
+11 Những Nhà Cầm Quyền Chống Lại Chúa|23:29|22|kich.chua-cuu-the-gie-xu.11-nhung-nha-cam-quyen-chong-lai-chua

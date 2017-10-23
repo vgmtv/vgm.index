@@ -1,1 +1,0 @@
-092 Gi 10:22 42 Chúa Giê xu Bảo Vệ Thần Tánh Ngài|33:34|12|hoc-kinh-thanh-theo-sach.43-giang-jm.092-gi-10-22-42-chua-gie-xu-bao-ve-than-tanh-ngai

@@ -1,1 +1,0 @@
-Gion05 020111 Sự Kỷ Luật Của Chúa Trên Tôi Tớ Không Vâng Lời|23:27|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.thtk32-sach-gio-na.gion05-020111-su-ky-luat-cua-chua-tren-toi-to-khong-vang-loi

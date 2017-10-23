@@ -1,1 +1,0 @@
-Kể Chuyện Kinh Thánh|10|05-ngon-ngu-ky-hieu.ke-chuyen-kinh-thanh|true|0

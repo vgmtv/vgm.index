@@ -1,1 +1,0 @@
-Người Sa ma ri Nhân Lành|01:25|0|05-ngon-ngu-ky-hieu.hoat-hinh.little-bible-heroes.nguoi-sa-ma-ri-nhan-lanh

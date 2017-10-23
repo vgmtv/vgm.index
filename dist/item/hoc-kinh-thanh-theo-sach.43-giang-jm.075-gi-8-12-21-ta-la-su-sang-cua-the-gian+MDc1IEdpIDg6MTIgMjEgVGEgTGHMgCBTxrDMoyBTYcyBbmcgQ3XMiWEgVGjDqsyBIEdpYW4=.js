@@ -1,1 +1,0 @@
-075 Gi 8:12 21 Ta Là Sự Sáng Của Thế Gian|25:30|12|hoc-kinh-thanh-theo-sach.43-giang-jm.075-gi-8-12-21-ta-la-su-sang-cua-the-gian

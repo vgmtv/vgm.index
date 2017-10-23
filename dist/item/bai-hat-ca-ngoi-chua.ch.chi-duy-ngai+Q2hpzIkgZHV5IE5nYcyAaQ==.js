@@ -1,1 +1,0 @@
-Chỉ duy Ngài|02:58|0|bai-hat-ca-ngoi-chua.ch.chi-duy-ngai

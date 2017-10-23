@@ -1,1 +1,0 @@
-06 Các Lời Hứa   Đặc Tính Và Văn Hóa|46:37|0|hoc-theo-chu-de.bai-giang-tren-nui-tcdtk.06-cac-loi-hua-dac-tinh-va-van-hoa

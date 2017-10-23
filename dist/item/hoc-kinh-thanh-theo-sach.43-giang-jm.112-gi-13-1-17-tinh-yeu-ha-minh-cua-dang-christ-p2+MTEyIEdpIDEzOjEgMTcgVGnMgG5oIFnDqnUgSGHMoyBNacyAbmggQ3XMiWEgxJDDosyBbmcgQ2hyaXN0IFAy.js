@@ -1,1 +1,0 @@
-112 Gi 13:1 17 Tình Yêu Hạ Mình Của Đấng Christ P2|28:31|0|hoc-kinh-thanh-theo-sach.43-giang-jm.112-gi-13-1-17-tinh-yeu-ha-minh-cua-dang-christ-p2

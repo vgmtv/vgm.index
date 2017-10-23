@@ -1,1 +1,0 @@
-06 Gi 2:13 3:21 Đền Thờ Chúa   Người Pha ra si|29:45|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.06-gi-2-13-3-21-den-tho-chua-nguoi-pha-ra-si

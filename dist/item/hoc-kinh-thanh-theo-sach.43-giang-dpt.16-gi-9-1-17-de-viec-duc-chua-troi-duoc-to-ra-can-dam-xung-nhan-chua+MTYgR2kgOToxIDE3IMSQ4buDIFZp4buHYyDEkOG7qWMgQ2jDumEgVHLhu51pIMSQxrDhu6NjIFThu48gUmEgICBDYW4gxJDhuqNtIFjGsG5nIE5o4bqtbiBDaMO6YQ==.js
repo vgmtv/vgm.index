@@ -1,0 +1,1 @@
+16 Gi 9:1 17 Để Việc Đức Chúa Trời Được Tỏ Ra   Can Đảm Xưng Nhận Chúa|25:24|0|hoc-kinh-thanh-theo-sach.43-giang-dpt.16-gi-9-1-17-de-viec-duc-chua-troi-duoc-to-ra-can-dam-xung-nhan-chua

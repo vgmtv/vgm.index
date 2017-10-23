@@ -1,1 +1,0 @@
-06 Gia 2:14 26  3:10 12 Đức Tin Và Hành Động   Quán Triệt Lời Nói|29:23|0|hoc-kinh-thanh-theo-sach.59-gia-co-dpt.06-gia-2-14-26-3-10-12-duc-tin-va-hanh-dong-quan-triet-loi-noi

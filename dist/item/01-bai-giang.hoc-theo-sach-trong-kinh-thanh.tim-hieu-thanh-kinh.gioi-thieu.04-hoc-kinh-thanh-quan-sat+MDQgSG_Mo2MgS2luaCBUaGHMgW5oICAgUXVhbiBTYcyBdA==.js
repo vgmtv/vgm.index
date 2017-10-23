@@ -1,1 +1,0 @@
-04 Học Kinh Thánh   Quan Sát|21:52|0|01-bai-giang.hoc-theo-sach-trong-kinh-thanh.tim-hieu-thanh-kinh.gioi-thieu.04-hoc-kinh-thanh-quan-sat

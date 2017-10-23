@@ -1,1 +1,0 @@
-015 Ro 2:1 5 Nguyên Tắc Phán Xét Lẽ Thật|01:00:41|0|hoc-kinh-thanh-theo-sach.45-ro-ma-dmt.015-ro-2-1-5-nguyen-tac-phan-xet-le-that
