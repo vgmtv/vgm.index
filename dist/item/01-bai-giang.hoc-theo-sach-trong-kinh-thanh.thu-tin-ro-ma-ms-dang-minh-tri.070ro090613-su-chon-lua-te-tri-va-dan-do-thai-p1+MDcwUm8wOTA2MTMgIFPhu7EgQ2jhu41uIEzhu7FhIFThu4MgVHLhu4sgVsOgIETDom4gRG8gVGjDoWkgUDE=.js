@@ -1,0 +1,1 @@
+070Ro090613  Sự Chọn Lựa Tể Trị Và Dân Do Thái P1|01:02:41|0|070ro090613-su-chon-lua-te-tri-va-dan-do-thai-p1
