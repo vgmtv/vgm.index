@@ -1,1 +1,1 @@
-Sắc Màu Thánh Kinh|4|sac-mau-thanh-kinh|true|0|true
+Sắc Màu Thánh Kinh|3|sac-mau-thanh-kinh|true|0|true
