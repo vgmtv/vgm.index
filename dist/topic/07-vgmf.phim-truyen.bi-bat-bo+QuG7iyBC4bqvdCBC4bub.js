@@ -1,0 +1,1 @@
+Bị Bắt Bớ|1|bi-bat-bo|true|0|true

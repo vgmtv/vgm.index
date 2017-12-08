@@ -1,1 +1,0 @@
-Người Sa ma ri Nhân Lành|02:12|0|nguoi-sa-ma-ri-nhan-lanh

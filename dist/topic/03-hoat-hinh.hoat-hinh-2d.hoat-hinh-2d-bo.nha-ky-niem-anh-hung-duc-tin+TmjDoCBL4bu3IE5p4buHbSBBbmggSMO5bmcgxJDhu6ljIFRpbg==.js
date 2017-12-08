@@ -1,1 +1,1 @@
-Nhà Kỷ Niệm Anh Hùng Đức Tin|8|nha-ky-niem-anh-hung-duc-tin|true|0|true
+Nhà Kỷ Niệm Anh Hùng Đức Tin|12|nha-ky-niem-anh-hung-duc-tin|true|0|true

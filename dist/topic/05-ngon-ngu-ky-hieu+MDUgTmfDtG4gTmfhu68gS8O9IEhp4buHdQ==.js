@@ -1,1 +1,1 @@
-05 Ngôn Ngữ Ký Hiệu|66|05-ngon-ngu-ky-hieu|true|0|false
+05 Ngôn Ngữ Ký Hiệu|82|05-ngon-ngu-ky-hieu|true|0|false

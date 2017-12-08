@@ -1,0 +1,1 @@
+Kỵ Lửa|1|ky-lua|true|0|true

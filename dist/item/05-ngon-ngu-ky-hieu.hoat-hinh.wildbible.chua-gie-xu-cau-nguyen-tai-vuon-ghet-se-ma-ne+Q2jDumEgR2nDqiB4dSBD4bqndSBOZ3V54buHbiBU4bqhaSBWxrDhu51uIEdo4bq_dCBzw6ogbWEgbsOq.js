@@ -1,1 +1,0 @@
-Chúa Giê xu Cầu Nguyện Tại Vườn Ghết sê ma nê|01:10|0|chua-gie-xu-cau-nguyen-tai-vuon-ghet-se-ma-ne

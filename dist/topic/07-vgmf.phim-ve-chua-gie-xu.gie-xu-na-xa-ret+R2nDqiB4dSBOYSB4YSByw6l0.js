@@ -1,0 +1,1 @@
+Giê xu Na xa rét|4|gie-xu-na-xa-ret|true|0|true

@@ -1,0 +1,1 @@
+Martin Luther|1|martin-luther|true|0|true

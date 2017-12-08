@@ -1,0 +1,1 @@
+Ê xơ tê|1|e-xo-te|true|0|true
