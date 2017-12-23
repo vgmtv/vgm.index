@@ -1,1 +1,1 @@
-Học Theo Sách Trong Kinh Thánh|231|hoc-theo-sach-trong-kinh-thanh|true|0|false
+Học Theo Sách Trong Kinh Thánh|233|hoc-theo-sach-trong-kinh-thanh|true|0|false
