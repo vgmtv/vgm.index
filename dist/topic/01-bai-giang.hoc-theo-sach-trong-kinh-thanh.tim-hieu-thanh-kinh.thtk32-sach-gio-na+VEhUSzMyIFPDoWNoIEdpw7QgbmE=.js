@@ -1,1 +1,1 @@
-THTK32 Sách Giô na|8|thtk32-sach-gio-na|true|0|true
+THTK32 Sách Giô na|9|thtk32-sach-gio-na|true|0|true
