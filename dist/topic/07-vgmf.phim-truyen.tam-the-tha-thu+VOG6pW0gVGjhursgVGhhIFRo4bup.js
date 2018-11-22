@@ -1,0 +1,1 @@
+Tấm Thẻ Tha Thứ|1|tam-the-tha-thu|true|0|true
