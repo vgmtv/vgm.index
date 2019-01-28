@@ -1,1 +1,0 @@
-020Ro030108 Trả Lời Chống Đối|01:08:26|0|020ro030108-tra-loi-chong-doi
